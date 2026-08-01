@@ -310,6 +310,41 @@ button, a { -webkit-tap-highlight-color: transparent; }
 .prose strong { color: var(--gold); font-weight: 650; letter-spacing: 0.02em; }
 .prose code { background: var(--surface-soft); border: 1px solid var(--line); font-family: ui-monospace, monospace; font-size: 0.8em; padding: 0.1em 0.25em; }
 
+.story-illustration {
+  margin: clamp(3rem, 8vw, 5.5rem) auto;
+  max-width: 34rem;
+}
+.story-illustration a {
+  background: var(--surface-raised);
+  border: 1px solid var(--line);
+  box-shadow: 0 1.5rem 4rem rgba(0, 0, 0, 0.28);
+  display: block;
+  overflow: hidden;
+  position: relative;
+}
+.story-illustration a::after {
+  border: 1px solid rgba(230, 214, 184, 0.22);
+  content: "";
+  inset: 0.65rem;
+  pointer-events: none;
+  position: absolute;
+}
+.story-illustration img {
+  display: block;
+  height: auto;
+  width: 100%;
+}
+.story-illustration figcaption {
+  color: var(--ink-muted);
+  font-family: var(--sans);
+  font-size: 0.68rem;
+  letter-spacing: 0.1em;
+  line-height: 1.6;
+  margin-top: 0.9rem;
+  text-align: center;
+  text-transform: uppercase;
+}
+
 .reader-pagination {
   border-bottom: 1px solid var(--line);
   border-top: 1px solid var(--line);

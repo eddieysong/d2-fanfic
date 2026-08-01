@@ -82,7 +82,7 @@ export function Reader({
           <h1>{entry.title}</h1>
           <div className="story-meta"><span>{entry.wordCount.toLocaleString()} words</span><span>{entry.readingMinutes} min read</span></div>
         </header>
-        <MarkdownProse markdown={entry.content} />
+        <MarkdownProse markdown={entry.content} illustrations={entry.illustrations} />
       </article>
 
       <nav className="reader-pagination" aria-label="Chronological reading navigation">
