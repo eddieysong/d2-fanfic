@@ -19,6 +19,8 @@ npm run build
 npm test
 ```
 
+The default build selects the appropriate output automatically: native Next.js on Vercel and Vinext for Sites. The explicit commands are `npm run build:vercel` and `npm run build:sites`.
+
 ## Content notice
 
 Explicit adult fiction featuring BDSM, consensual power exchange, magical restraint, and graphic sexual content. All sexual participants are adults.
