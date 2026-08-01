@@ -10,6 +10,7 @@ export type GalleryItem = Illustration & {
   entryTitle: string;
   entryEyebrow: string;
   collectionId: string;
+  animationSrc?: string;
 };
 
 const filters = [
@@ -18,14 +19,20 @@ const filters = [
   { id: "aftermath", label: "Aftermath" },
   { id: "archives", label: "Archives" },
   { id: "fanservice", label: "Fan service" },
+  { id: "animated", label: "Animated" },
 ] as const;
 
 export function IllustrationGallery({ items }: { items: GalleryItem[] }) {
   const [filter, setFilter] = useState("all");
   const [selectedSrc, setSelectedSrc] = useState<string | null>(null);
+  const [isPlayingAnimation, setIsPlayingAnimation] = useState(false);
 
   const visibleItems = useMemo(
-    () => (filter === "all" ? items : items.filter((item) => item.collectionId === filter)),
+    () => {
+      if (filter === "all") return items;
+      if (filter === "animated") return items.filter((item) => item.animationSrc);
+      return items.filter((item) => item.collectionId === filter);
+    },
     [filter, items],
   );
   const selectedIndex = visibleItems.findIndex((item) => item.src === selectedSrc);
@@ -35,6 +42,12 @@ export function IllustrationGallery({ items }: { items: GalleryItem[] }) {
     if (selectedIndex < 0) return;
     const next = (selectedIndex + direction + visibleItems.length) % visibleItems.length;
     setSelectedSrc(visibleItems[next].src);
+    setIsPlayingAnimation(false);
+  }
+
+  function closeLightbox() {
+    setSelectedSrc(null);
+    setIsPlayingAnimation(false);
   }
 
   useEffect(() => {
@@ -42,7 +55,7 @@ export function IllustrationGallery({ items }: { items: GalleryItem[] }) {
     const previousOverflow = document.body.style.overflow;
     document.body.style.overflow = "hidden";
     const onKeyDown = (event: KeyboardEvent) => {
-      if (event.key === "Escape") setSelectedSrc(null);
+      if (event.key === "Escape") closeLightbox();
       if (event.key === "ArrowLeft") moveSelection(-1);
       if (event.key === "ArrowRight") moveSelection(1);
     };
@@ -97,7 +110,7 @@ export function IllustrationGallery({ items }: { items: GalleryItem[] }) {
               aria-pressed={filter === option.id}
               onClick={() => {
                 setFilter(option.id);
-                setSelectedSrc(null);
+                closeLightbox();
               }}
             >
               {option.label}
@@ -108,18 +121,31 @@ export function IllustrationGallery({ items }: { items: GalleryItem[] }) {
         <div className="gallery-grid">
           {visibleItems.map((item, index) => (
             <article className="gallery-card" data-gallery-item key={item.src}>
-              <button type="button" onClick={() => setSelectedSrc(item.src)} aria-label={`View ${item.caption}`}>
-                <Image
-                  src={item.src}
-                  alt={item.alt}
-                  width={1152}
-                  height={1728}
-                  sizes="(max-width: 560px) 100vw, (max-width: 980px) 50vw, 25vw"
-                  loading={index < 4 ? "eager" : "lazy"}
-                  unoptimized
-                />
-                <span className="gallery-card-number">{String(index + 1).padStart(2, "0")}</span>
-              </button>
+              <div className="gallery-card-media">
+                <button className="gallery-image-button" type="button" onClick={() => { setSelectedSrc(item.src); setIsPlayingAnimation(false); }} aria-label={`View ${item.caption}`}>
+                  <Image
+                    src={item.src}
+                    alt={item.alt}
+                    width={1152}
+                    height={1728}
+                    sizes="(max-width: 560px) 100vw, (max-width: 980px) 50vw, 25vw"
+                    loading={index < 4 ? "eager" : "lazy"}
+                    unoptimized
+                  />
+                  <span className="gallery-card-number">{String(index + 1).padStart(2, "0")}</span>
+                </button>
+                {item.animationSrc ? (
+                  <button
+                    className="gallery-animation-button"
+                    data-animated-scene
+                    type="button"
+                    onClick={() => { setSelectedSrc(item.src); setIsPlayingAnimation(true); }}
+                    aria-label={`Play animated scene: ${item.caption}`}
+                  >
+                    <span aria-hidden="true">▶</span> Play scene
+                  </button>
+                ) : null}
+              </div>
               <div className="gallery-card-copy">
                 <p>{item.entryEyebrow}</p>
                 <h3>{item.caption}</h3>
@@ -140,14 +166,36 @@ export function IllustrationGallery({ items }: { items: GalleryItem[] }) {
       </footer>
 
       {selected ? (
-        <div className="gallery-lightbox" role="dialog" aria-modal="true" aria-label={selected.caption} onClick={() => setSelectedSrc(null)}>
-          <button className="lightbox-close" type="button" onClick={() => setSelectedSrc(null)} aria-label="Close illustration">Close</button>
+        <div className="gallery-lightbox" role="dialog" aria-modal="true" aria-label={selected.caption} onClick={closeLightbox}>
+          <button className="lightbox-close" type="button" onClick={closeLightbox} aria-label="Close illustration">Close</button>
           <button className="lightbox-arrow previous" type="button" onClick={(event) => { event.stopPropagation(); moveSelection(-1); }} aria-label="Previous illustration">←</button>
           <figure onClick={(event) => event.stopPropagation()}>
-            <Image src={selected.src} alt={selected.alt} width={1152} height={1728} sizes="100vw" priority unoptimized />
+            {isPlayingAnimation && selected.animationSrc ? (
+              <video
+                src={selected.animationSrc}
+                poster={selected.src}
+                controls
+                autoPlay
+                loop
+                playsInline
+                preload="metadata"
+                aria-label={`Animated scene: ${selected.caption}`}
+              />
+            ) : (
+              <Image src={selected.src} alt={selected.alt} width={1152} height={1728} sizes="100vw" priority unoptimized />
+            )}
             <figcaption>
               <p>{selected.entryEyebrow}</p>
               <strong>{selected.caption}</strong>
+              {selected.animationSrc ? (
+                <button
+                  className="lightbox-media-toggle"
+                  type="button"
+                  onClick={() => setIsPlayingAnimation((current) => !current)}
+                >
+                  {isPlayingAnimation ? "View still illustration" : "▶ Play animated scene"}
+                </button>
+              ) : null}
               {selected.entrySlug ? (
                 <Link href={`/read/${selected.entrySlug}`}>Read {selected.entryTitle} <span aria-hidden="true">→</span></Link>
               ) : (

@@ -37,10 +37,15 @@ test("renders the complete story and fan-service illustration gallery", async ()
   assert.match(html, /All illustrations/);
   assert.match(html, /<strong>58<\/strong>/);
   assert.match(html, /Fan service/);
+  assert.match(html, />Animated<\/button>/);
   assert.match(html, /01_Stage1_Classic_Outfit\.jpg/);
   assert.match(html, /Setting_Out_Holy_Grail_Stage6\.jpg/);
   assert.match(html, /Fanservice_Morning_Grail_Run\.jpg/);
   assert.match(html, /Intimate_Feet_Closeup_with_Face\.jpg/);
+  assert.match(html, /Fanservice_Lut_Gholein_Bathhouse_Animated\.mp4/);
+  assert.match(html, /Beneficent_Attire_Stage6_Animated\.mp4/);
+  assert.match(html, /Return_To_Harrogath_Animated\.mp4/);
+  assert.equal((html.match(/data-animated-scene/g) ?? []).length, 3);
   assert.equal((html.match(/data-gallery-item/g) ?? []).length, 58);
 });
 

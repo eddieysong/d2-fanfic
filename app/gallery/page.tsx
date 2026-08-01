@@ -7,6 +7,11 @@ export const metadata: Metadata = {
   description: "The complete chronological illustration gallery for Cordelia and the Beneficent Misfortune.",
 };
 
+const animationByIllustration: Record<string, string> = {
+  "/illustrations/06_Stage6_Full_Beneficent_Attire.jpg": "/animations/Beneficent_Attire_Stage6_Animated.mp4",
+  "/illustrations/Harrogath_Anya_Runed_Bindings.jpg": "/animations/Return_To_Harrogath_Animated.mp4",
+};
+
 const fanservice: GalleryItem[] = [
   {
     src: "/illustrations/Intimate_Feet_Closeup_with_Face.jpg",
@@ -25,6 +30,7 @@ const fanservice: GalleryItem[] = [
     entryTitle: "Sanctuary After Dark",
     entryEyebrow: "Non-canonical interlude",
     collectionId: "fanservice",
+    animationSrc: "/animations/Fanservice_Lut_Gholein_Bathhouse_Animated.mp4",
   },
   {
     src: "/illustrations/Fanservice_Baal_Run_10000.jpg",
@@ -126,6 +132,7 @@ const items: GalleryItem[] = [
       entryTitle: entry.title,
       entryEyebrow: entry.eyebrow,
       collectionId: entry.collectionId,
+      animationSrc: animationByIllustration[illustration.src],
     })),
   ),
   ...fanservice,
