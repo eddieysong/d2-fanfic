@@ -66,7 +66,10 @@ export function Reader({
     <main className="reader-page">
       <div className="reading-progress" aria-hidden="true"><span style={{ width: `${progress}%` }} /></div>
       <header className="reader-header">
-        <Link className="reader-index" href="/">← Index</Link>
+        <div className="reader-links">
+          <Link className="reader-index" href="/">← Index</Link>
+          <Link className="reader-index" href="/gallery">Gallery</Link>
+        </div>
         <div className="reader-tools" aria-label="Reading controls">
           <button onClick={() => changeSize(-1)} disabled={size === sizes[0]} aria-label="Decrease text size">A−</button>
           <button onClick={() => changeSize(1)} disabled={size === sizes[sizes.length - 1]} aria-label="Increase text size">A+</button>

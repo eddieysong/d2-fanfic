@@ -52,6 +52,7 @@ export function LibraryHome({
           <a href="#core">Core journey</a>
           <a href="#aftermath">Aftermath</a>
           <a href="#archives">Archives</a>
+          <Link href="/gallery">Gallery</Link>
         </nav>
       </header>
 
@@ -64,6 +65,7 @@ export function LibraryHome({
         </p>
         <div className="hero-actions">
           <Link className="button button-primary" href={`/read/${entries[0].slug}`}>Begin the journey</Link>
+          <Link className="button button-secondary" href="/gallery">View the gallery</Link>
           {lastRead && entries.some((entry) => entry.slug === lastRead.slug) ? (
             <Link className="button button-secondary" href={`/read/${lastRead.slug}`}>Continue reading</Link>
           ) : null}

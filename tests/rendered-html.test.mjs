@@ -24,8 +24,21 @@ test("renders the chronological archive index", async () => {
   assert.match(html, /The Core Journey/);
   assert.match(html, /After the Worldstone/);
   assert.match(html, /The Beneficent Archives/);
+  assert.match(html, /View the gallery/);
   assert.match(html, /<strong>36<\/strong>\s*entries/);
   assert.doesNotMatch(html, /codex-preview|SkeletonPreview|Your site is taking shape/);
+});
+
+test("renders the complete chronological illustration gallery", async () => {
+  const response = await render("/gallery");
+  assert.equal(response.status, 200);
+  const html = await response.text();
+  assert.match(html, /The visual archive/);
+  assert.match(html, /All illustrations/);
+  assert.match(html, /<strong>46<\/strong>/);
+  assert.match(html, /01_Stage1_Classic_Outfit\.jpg/);
+  assert.match(html, /Setting_Out_Holy_Grail_Stage6\.jpg/);
+  assert.equal((html.match(/data-gallery-item/g) ?? []).length, 46);
 });
 
 test("renders a complete reader route", async () => {
