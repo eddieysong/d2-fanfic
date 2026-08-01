@@ -6,7 +6,7 @@ import { useEffect, useMemo, useState } from "react";
 import type { Illustration } from "../lib/library-types";
 
 export type GalleryItem = Illustration & {
-  entrySlug: string;
+  entrySlug?: string;
   entryTitle: string;
   entryEyebrow: string;
   collectionId: string;
@@ -17,6 +17,7 @@ const filters = [
   { id: "core", label: "Core journey" },
   { id: "aftermath", label: "Aftermath" },
   { id: "archives", label: "Archives" },
+  { id: "fanservice", label: "Fan service" },
 ] as const;
 
 export function IllustrationGallery({ items }: { items: GalleryItem[] }) {
@@ -67,10 +68,10 @@ export function IllustrationGallery({ items }: { items: GalleryItem[] }) {
 
       <section className="gallery-hero">
         <p className="kicker">The visual archive</p>
-        <h1>Scenes from<br /><em>the journey</em></h1>
+        <h1>Scenes from<br /><em>Sanctuary</em></h1>
         <p>
-          Forty-six glimpses of Cordelia’s path through Sanctuary—from her first steps beyond the
-          Rogue Encampment to the artifacts and legends that followed the Worldstone.
+          A growing visual archive of Cordelia’s journey, its strange aftermath, and a few
+          decidedly non-canonical moments created simply because they deserved to exist.
         </p>
       </section>
 
@@ -122,7 +123,11 @@ export function IllustrationGallery({ items }: { items: GalleryItem[] }) {
               <div className="gallery-card-copy">
                 <p>{item.entryEyebrow}</p>
                 <h3>{item.caption}</h3>
-                <Link href={`/read/${item.entrySlug}`}>{item.entryTitle} <span aria-hidden="true">→</span></Link>
+                {item.entrySlug ? (
+                  <Link href={`/read/${item.entrySlug}`}>{item.entryTitle} <span aria-hidden="true">→</span></Link>
+                ) : (
+                  <span className="gallery-card-note">{item.entryTitle}</span>
+                )}
               </div>
             </article>
           ))}
@@ -143,7 +148,11 @@ export function IllustrationGallery({ items }: { items: GalleryItem[] }) {
             <figcaption>
               <p>{selected.entryEyebrow}</p>
               <strong>{selected.caption}</strong>
-              <Link href={`/read/${selected.entrySlug}`}>Read {selected.entryTitle} <span aria-hidden="true">→</span></Link>
+              {selected.entrySlug ? (
+                <Link href={`/read/${selected.entrySlug}`}>Read {selected.entryTitle} <span aria-hidden="true">→</span></Link>
+              ) : (
+                <span className="gallery-card-note">{selected.entryTitle}</span>
+              )}
             </figcaption>
           </figure>
           <button className="lightbox-arrow next" type="button" onClick={(event) => { event.stopPropagation(); moveSelection(1); }} aria-label="Next illustration">→</button>

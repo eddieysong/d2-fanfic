@@ -29,16 +29,19 @@ test("renders the chronological archive index", async () => {
   assert.doesNotMatch(html, /codex-preview|SkeletonPreview|Your site is taking shape/);
 });
 
-test("renders the complete chronological illustration gallery", async () => {
+test("renders the complete story and fan-service illustration gallery", async () => {
   const response = await render("/gallery");
   assert.equal(response.status, 200);
   const html = await response.text();
   assert.match(html, /The visual archive/);
   assert.match(html, /All illustrations/);
-  assert.match(html, /<strong>46<\/strong>/);
+  assert.match(html, /<strong>58<\/strong>/);
+  assert.match(html, /Fan service/);
   assert.match(html, /01_Stage1_Classic_Outfit\.jpg/);
   assert.match(html, /Setting_Out_Holy_Grail_Stage6\.jpg/);
-  assert.equal((html.match(/data-gallery-item/g) ?? []).length, 46);
+  assert.match(html, /Fanservice_Morning_Grail_Run\.jpg/);
+  assert.match(html, /Intimate_Feet_Closeup_with_Face\.jpg/);
+  assert.equal((html.match(/data-gallery-item/g) ?? []).length, 58);
 });
 
 test("renders a complete reader route", async () => {

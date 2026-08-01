@@ -439,7 +439,8 @@ button, a { -webkit-tap-highlight-color: transparent; }
 .gallery-card-copy { padding: 1.2rem 0.2rem 0; }
 .gallery-card-copy p { color: var(--accent-bright); font-size: 0.6rem; font-weight: 700; letter-spacing: 0.12em; margin: 0 0 0.55rem; text-transform: uppercase; }
 .gallery-card-copy h3 { font-family: var(--serif); font-size: clamp(1rem, 1.6vw, 1.25rem); font-weight: 400; line-height: 1.25; margin: 0 0 0.8rem; }
-.gallery-card-copy a { color: var(--ink-muted); font-size: 0.66rem; letter-spacing: 0.06em; line-height: 1.4; }
+.gallery-card-copy a, .gallery-card-note { color: var(--ink-muted); font-size: 0.66rem; letter-spacing: 0.06em; line-height: 1.4; }
+.gallery-card-note { display: block; }
 .gallery-card-copy a:hover { color: var(--gold); }
 
 .gallery-lightbox {
