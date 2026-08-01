@@ -30,6 +30,83 @@ const collections = [
   },
 ];
 
+const illustrationRoot = "/illustrations";
+const art = (file, alt, caption, placement = 0.55) => ({
+  src: `${illustrationRoot}/${file}`,
+  alt,
+  caption,
+  placement,
+});
+
+const illustrations = {
+  "01-a-very-small-cave": [
+    art("01_Stage1_Classic_Outfit.jpg", "Cordelia in her original sorceress attire", "Cordelia at the beginning of her journey.", 0.12),
+  ],
+  "03-the-wrong-order": [
+    art("Fight_Stony_Circle_Stage1.jpg", "Cordelia fights Fallen at the Cairn Stones", "The battle at the Cairn Stones.", 0.34),
+    art("Capture_Rakanishu_Fallen_Stage1.jpg", "The Fallen capture Cordelia near the Cairn Stones", "Rakanishu's pack closes in.", 0.7),
+  ],
+  "04-the-countess": [
+    art("Fight_Countess_Stage1.jpg", "Cordelia confronts the Countess in the Forgotten Tower", "The confrontation beneath the Forgotten Tower.", 0.32),
+    art("Countess_Capture_Stage1.jpg", "The Countess holds Cordelia captive", "The Countess claims the advantage.", 0.7),
+  ],
+  "05-the-horadric-malus": [
+    art("Smith_Fight_Stage1.jpg", "Cordelia battles the Smith in the Monastery Barracks", "The Smith guards the Horadric Malus.", 0.32),
+    art("Smith_Capture_Stage1.jpg", "The Smith captures Cordelia in the Monastery Barracks", "A hard reversal in the Barracks.", 0.7),
+  ],
+  "06-the-maiden-of-anguish": [
+    art("Fight_Andariel_Stage1.jpg", "Cordelia faces Andariel beneath the Monastery", "The Maiden of Anguish awaits.", 0.35),
+    art("Andariel_Capture_Stage1.jpg", "Andariel captures Cordelia in her throne room", "Andariel turns the encounter to her liking.", 0.67),
+    art("Stage2_Outfit_Base.jpg", "Cordelia wearing the second stage of the Beneficent Attire", "The Beneficent Attire, Stage II.", 0.9),
+  ],
+  "07-radament-s-lair": [art("05_Radament_Stage2.jpg", "Cordelia encounters Radament beneath Lut Gholein", "Radament's lair.")],
+  "08-the-horadric-staff": [art("06_Coldworm_Stage2.jpg", "Cordelia confronts Coldworm in the Maggot Lair", "Deep within the Maggot Lair.")],
+  "09-the-tainted-sun": [art("07_Fangskin_Stage2.jpg", "Cordelia faces Fangskin in the Claw Viper Temple", "The altar of the Tainted Sun.")],
+  "10-the-arcane-sanctuary": [art("08_Palace_Cellar_Stage2.jpg", "Cordelia is surrounded in the Palace Cellar", "Below Jerhyn's palace.")],
+  "11-the-summoner": [art("09_Summoner_Stage2.jpg", "Cordelia confronts the Summoner in the Arcane Sanctuary", "At the heart of the Arcane Sanctuary.")],
+  "12-the-seven-tombs": [
+    art("10_Duriel_Stage2.jpg", "Cordelia faces Duriel in Tal Rasha's Tomb", "Duriel's chamber.", 0.62),
+    art("Stage3_Outfit_Base.jpg", "Cordelia wearing the third stage of the Beneficent Attire", "The Beneficent Attire, Stage III.", 0.9),
+  ],
+  "13-the-golden-bird": [art("11_Golden_Bird_Stage3.jpg", "Cordelia is captured while seeking the Golden Bird", "The search for the Golden Bird.")],
+  "14-the-gidbinn": [art("12_Gidbinn_Stage3.jpg", "Cordelia is restrained near the Gidbinn", "The Gidbinn's overgrown shrine.")],
+  "15-khalim-s-will": [art("13_Sszark_Stage3.jpg", "Sszark's brood captures Cordelia beneath Kurast", "Sszark's webbed lair.")],
+  "16-lam-esen-s-tome": [art("14_Battlemaid_Sarina_Stage3.jpg", "Cordelia faces Battlemaid Sarina in the Ruined Temple", "Battlemaid Sarina guards the forgotten tome.")],
+  "17-the-blackened-temple": [art("15_High_Council_Stage3.jpg", "Cordelia confronts the High Council in Travincal", "The High Council of Travincal.")],
+  "18-the-lord-of-hatred": [
+    art("16_Mephisto_Stage3.jpg", "Cordelia faces Mephisto beneath Travincal", "The Lord of Hatred waits below.", 0.62),
+    art("Stage4_Outfit_Base.jpg", "Cordelia wearing the fourth stage of the Beneficent Attire", "The Beneficent Attire, Stage IV.", 0.9),
+  ],
+  "19-the-fallen-angel": [art("17_Izual_Stage4.jpg", "Cordelia confronts Izual on the Plains of Despair", "The Fallen Angel.")],
+  "20-hell-s-forge": [art("18_Hephasto_Stage4.jpg", "Cordelia faces Hephasto at the Hellforge", "Hephasto guards the Hellforge.")],
+  "21-terror-s-end": [
+    art("19_Diablo_Stage4.jpg", "Cordelia faces Diablo in the Chaos Sanctuary", "Terror's End.", 0.62),
+    art("Stage5_Outfit_Base.jpg", "Cordelia wearing the fifth stage of the Beneficent Attire", "The Beneficent Attire, Stage V.", 0.9),
+  ],
+  "22-the-siege-of-harrogath": [art("20_Shenk_Stage5.jpg", "Cordelia confronts Shenk outside Harrogath", "Breaking the siege.")],
+  "23-prisoners-of-war": [art("21_Prison_Camp_Stage5.jpg", "Cordelia is captured in a siege camp", "Inside the prison camp.")],
+  "24-prison-of-ice": [art("22_Frozenstein_Stage5.jpg", "Cordelia faces Frozenstein in the Frozen River", "The Prison of Ice.")],
+  "25-betrayal-of-harrogath": [art("23_Nihlathak_Stage5.jpg", "Cordelia confronts Nihlathak in his temple", "Beneath Nihlathak's temple.")],
+  "26-rite-of-passage": [art("24_Ancients_Stage5.jpg", "Cordelia stands before the Ancients on Arreat Summit", "The Rite of Passage.")],
+  "27-eve-of-destruction": [
+    art("25_Lister_Declined_Stage5.jpg", "Cordelia faces Lister and his pack in the Throne of Destruction", "Lister's final wave.", 0.34),
+    art("26_Baal_Duplicates_Stage5.jpg", "Baal's duplicates surround Cordelia", "The last deception before the Worldstone.", 0.72),
+  ],
+  "28-the-holy-grail": [
+    art("Spent_Beneath_Worldstone_Stage6.jpg", "Cordelia rests beneath the Worldstone after defeating Baal", "Baal defeated; the chamber finally still.", 0.1),
+    art("Harrogath_Anya_Runed_Bindings.jpg", "Anya checks on Cordelia in Harrogath", "Back in Harrogath, Anya makes certain she is all right.", 0.43),
+    art("06_Stage6_Full_Beneficent_Attire.jpg", "Cordelia wearing the complete Beneficent Attire", "The complete Beneficent Attire.", 0.7),
+    art("Setting_Out_Holy_Grail_Stage6.jpg", "Cordelia enters a portal while Charsi and Kashya watch", "A new adventure—and a very long Holy Grail—begins.", 0.96),
+  ],
+  "29-a-small-personalization": [art("Small_Personalization_Anya_Study.jpg", "Anya studies a magical personalization for Cordelia", "A small personalization in Anya's study.")],
+  "30-the-lost-horadrim": [art("Lost_Horadrim.jpg", "Cordelia investigates the workshop of the Lost Horadrim", "The first chamber of Edran Vohl's legacy.")],
+  "31-the-rose-sentence": [art("Rose_Sentence_Cage_Stage6.jpg", "Cordelia waits out the Rose Sentence in a runed cage", "The long final days of the Rose Sentence.")],
+  "32-the-penitent-coil": [art("The_Penitent_Coil.jpg", "The enchanted Penitent Coil binds Cordelia", "The Penitent Coil accepts a challenging task.")],
+  "33-the-mutable-instrument": [art("Mutable_Instrument_Stage6.jpg", "Cordelia tests the cheerful mutable instrument", "The mutable instrument is very eager to help.")],
+  "34-the-whore-maker": [art("Whore_Maker_Stage6.jpg", "Cordelia examines the Lost Horadrim's final training device", "The artifact known only as the Whore-Maker.")],
+  "35-the-intended-effects": [art("Intended_Effects.jpg", "Seris reads Cain's account of the Beneficent Attire", "A dusty tome and its unexpectedly absorbing scholarship.")],
+};
+
 function countWords(text) {
   return (text.match(/\b[\p{L}\p{N}’'-]+\b/gu) ?? []).length;
 }
@@ -59,6 +136,7 @@ function finalize(entry, position) {
     wordCount: words,
     readingMinutes: Math.max(1, Math.ceil(words / 235)),
     description: entry.description ?? excerpt(entry.content),
+    illustrations: illustrations[entry.slug] ?? [],
   };
 }
 

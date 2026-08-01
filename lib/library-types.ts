@@ -5,6 +5,13 @@ export type Collection = {
   description: string;
 };
 
+export type Illustration = {
+  src: string;
+  alt: string;
+  caption: string;
+  placement: number;
+};
+
 export type LibraryEntry = {
   slug: string;
   title: string;
@@ -17,4 +24,5 @@ export type LibraryEntry = {
   wordCount: number;
   readingMinutes: number;
   description: string;
+  illustrations: Illustration[];
 };

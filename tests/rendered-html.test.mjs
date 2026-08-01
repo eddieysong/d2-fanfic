@@ -36,6 +36,20 @@ test("renders a complete reader route", async () => {
   assert.match(html, /The Rogue Encampment looked less like/);
   assert.match(html, /Increase text size/);
   assert.match(html, /Chronological reading navigation/);
+  assert.match(html, /\/illustrations\/01_Stage1_Classic_Outfit\.jpg/);
+  assert.match(html, /Cordelia at the beginning of her journey/);
+});
+
+test("keeps multi-image scenes in narrative order", async () => {
+  const response = await render("/read/28-the-holy-grail");
+  assert.equal(response.status, 200);
+  const html = await response.text();
+  const worldstone = html.indexOf("Spent_Beneath_Worldstone_Stage6.jpg");
+  const harrogath = html.indexOf("Harrogath_Anya_Runed_Bindings.jpg");
+  const departure = html.indexOf("Setting_Out_Holy_Grail_Stage6.jpg");
+  assert.ok(worldstone > -1);
+  assert.ok(harrogath > worldstone);
+  assert.ok(departure > harrogath);
 });
 
 test("publishes only the selected source stories", async () => {
