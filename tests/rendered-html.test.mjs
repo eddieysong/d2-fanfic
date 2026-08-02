@@ -69,6 +69,9 @@ test("renders the Grail adventures in chronological order", async () => {
   assert.match(html, /Chapter Eleven: The Rose of Tristram/);
   assert.match(html, /Uber Tristram/);
   assert.match(html, /Three additional levels/);
+  assert.match(html, /The only Amazon-trained fighter you know/);
+  assert.match(html, /already counting the Terror, Hate and Destruction keys/);
+  assert.doesNotMatch(html, /less advanced bladder/);
 
   const generated = await readFile(new URL("../lib/library.generated.ts", import.meta.url), "utf8");
   const firstGrail = generated.indexOf("grail-01-the-fifth-branch");

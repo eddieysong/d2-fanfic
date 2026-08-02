@@ -2625,9 +2625,7 @@ The red portal remained.
 
 Emily entered first. She took one look at the restored square, lost corporeal discipline and sank waist-deep through the ground.
 
-Cain followed with both hands upon his staff. His mouth opened. Nothing scholarly emerged.
-
-"I may," he said eventually, "require a moment and a less advanced bladder."
+Cain followed with both hands upon his staff. He stared at the rebuilt roofs, the clear well and the green grass pushing between whole paving stones. His mouth opened. Nothing scholarly emerged. For once, Deckard Cain was simply amazed.
 
 Cordelia sat beside the new fountain. Satisfaction softened every line of her body. A large unique charm lay upon the grass, its flames contained within carved wood.
 
@@ -2639,25 +2637,27 @@ His expression brightened with paternal pride.
 
 Silence filled restored Tristram.
 
-Cordelia looked at the Torch.
+Cordelia turned the Torch in her hands, then smiled. "Kashya."
 
-She looked at Cain.
+"The only Amazon-trained fighter you know," Emily said from inside the ground.
 
-She looked around the town Cataclysm had just rebuilt.
+"And the next Torch may be mine."
 
-"Do not," Emily said from inside the ground.
+Emily pulled herself high enough to look across the restored square. "The next Torch?"
 
-"I am considering nothing."
+Cordelia was already counting the Terror, Hate and Destruction keys remaining in her stash. She had enough to begin another set, and the Prime Evils had never allowed death to inconvenience them for long.
 
-"Your nipple rings have begun charging."
+"The class enchantment varies," she said. "It would be wasteful not to try again."
 
-"Maintenance reserve."
+Tristram had existed again for less than a minute.
 
-Cain retreated one step toward the portal.
+Cain's amazement acquired a troubled edge.
 
-The other reward was a small Standard of Heroes. It possessed no useful enchantment, no skill bonus and no place in the Grail. Cordelia gave it to Kashya when they returned.
+The other reward was a small Standard of Heroes. It possessed no useful enchantment, no skill bonus and no place outside the Grail ledger, so Cordelia stored it in her Cube and forgot about it almost immediately.
 
-Weeks later, the commander wore the little standard as a trinket at her belt. Her fingers often touched it while she reviewed patrol reports, an unconscious gesture gentler than anything in her expression. No one asked whether she remembered restored Tristram, the three weeks which had made its restoration possible, or Cordelia begging her through the bars of a clean iron cage.
+Kashya tried to refuse the Hellfire Torch when they returned. Cordelia identified the Amazon enchantment a second time, hung it from the commander's belt and considered the discussion concluded.
+
+Weeks later, Kashya still wore the Torch as a trinket at her belt. Her fingers often touched its warm carved wood while she reviewed patrol reports, an unconscious gesture gentler than anything in her expression. No one asked whether she remembered restored Tristram, the three weeks which had made its restoration possible, or Cordelia begging her through the bars of a clean iron cage.
 
 The answer could be several things at once.
 
