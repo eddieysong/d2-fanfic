@@ -51,6 +51,7 @@ export function LibraryHome({
         <nav aria-label="Archive sections">
           <a href="#core">Core journey</a>
           <a href="#aftermath">Aftermath</a>
+          <a href="#grail">Grail adventures</a>
           <a href="#archives">Archives</a>
           <Link href="/gallery">Gallery</Link>
         </nav>
