@@ -23,9 +23,10 @@ test("renders the chronological archive index", async () => {
   assert.match(html, /The complete reading order/);
   assert.match(html, /The Core Journey/);
   assert.match(html, /After the Worldstone/);
+  assert.match(html, /The Fifth Discipline/);
   assert.match(html, /The Beneficent Archives/);
   assert.match(html, /View the gallery/);
-  assert.match(html, /<strong>36<\/strong>\s*entries/);
+  assert.match(html, /<strong>49<\/strong>\s*entries/);
   assert.doesNotMatch(html, /codex-preview|SkeletonPreview|Your site is taking shape/);
 });
 
@@ -59,6 +60,26 @@ test("renders a complete reader route", async () => {
   assert.match(html, /Chronological reading navigation/);
   assert.match(html, /\/illustrations\/01_Stage1_Classic_Outfit\.jpg/);
   assert.match(html, /Cordelia at the beginning of her journey/);
+});
+
+test("renders the Grail adventures in chronological order", async () => {
+  const response = await render("/read/grail-11-the-rose-of-tristram");
+  assert.equal(response.status, 200);
+  const html = await response.text();
+  assert.match(html, /Chapter Eleven: The Rose of Tristram/);
+  assert.match(html, /Uber Tristram/);
+  assert.match(html, /Three additional levels/);
+  assert.match(html, /The only Amazon-trained fighter you know/);
+  assert.match(html, /already counting the Terror, Hate and Destruction keys/);
+  assert.doesNotMatch(html, /less advanced bladder/);
+
+  const generated = await readFile(new URL("../lib/library.generated.ts", import.meta.url), "utf8");
+  const firstGrail = generated.indexOf("grail-01-the-fifth-branch");
+  const lastGrail = generated.indexOf("grail-13-the-mercenary-experiment");
+  const archives = generated.indexOf("35-the-intended-effects");
+  assert.ok(firstGrail > -1);
+  assert.ok(lastGrail > firstGrail);
+  assert.ok(archives > lastGrail);
 });
 
 test("keeps multi-image scenes in narrative order", async () => {
