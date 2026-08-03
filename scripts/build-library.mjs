@@ -23,7 +23,7 @@ const collections = [
   },
   {
     id: "grail",
-    label: "The Fifth Discipline",
+    label: "The Fourth Discipline",
     kicker: "The Grail adventures",
     description:
       "Cordelia meets the woman behind the Lost Horadrim’s legend, unlocks a new branch of Arcane magic, and makes the Holy Grail hunt considerably less sensible.",
@@ -234,7 +234,7 @@ async function splitGrailNovel() {
           .replace(/^-|-$/g, "")}`,
         title: chapterMatch[1],
         shortTitle,
-        eyebrow: `The Fifth Discipline · ${String(chapterNumber).padStart(2, "0")} of 13`,
+        eyebrow: `The Fourth Discipline · ${String(chapterNumber).padStart(2, "0")} of 13`,
         collectionId: "grail",
         sourceFile,
         lines: [],
@@ -266,6 +266,12 @@ const standalone = [
     slug: "31-the-rose-sentence",
     collectionId: "aftermath",
     eyebrow: "The Lost Horadrim · II",
+  },
+  {
+    file: "kashya_side_story_the_unreachable_key.md",
+    slug: "31b-the-unreachable-key",
+    collectionId: "aftermath",
+    eyebrow: "After the Rose Sentence · Kashya",
   },
   {
     file: "lost_horadrim_03_the_penitent_coil.md",
