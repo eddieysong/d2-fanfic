@@ -23,7 +23,7 @@ test("renders the chronological archive index", async () => {
   assert.match(html, /The complete reading order/);
   assert.match(html, /The Core Journey/);
   assert.match(html, /After the Worldstone/);
-  assert.match(html, /The Fifth Discipline/);
+  assert.match(html, /The Fourth Discipline/);
   assert.match(html, /The Beneficent Archives/);
   assert.match(html, /View the gallery/);
   assert.match(html, /<strong>49<\/strong>\s*entries/);
@@ -80,6 +80,14 @@ test("renders the Grail adventures in chronological order", async () => {
   assert.ok(firstGrail > -1);
   assert.ok(lastGrail > firstGrail);
   assert.ok(archives > lastGrail);
+});
+
+test("keeps the original chapter-two URL after retitling it", async () => {
+  const response = await render("/read/grail-02-the-fourth-discipline");
+  assert.equal(response.status, 200);
+  const html = await response.text();
+  assert.match(html, /Chapter Two: Applied Metaphysics/);
+  assert.match(html, /The Fourth Discipline/);
 });
 
 test("keeps multi-image scenes in narrative order", async () => {
