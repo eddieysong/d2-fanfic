@@ -1,4 +1,4 @@
-# The Fifth Discipline
+# The Fourth Discipline
 
 *A post-Baal Grail adventure in thirteen chapters.*
 
@@ -298,7 +298,7 @@ Emily smiled and drifted toward a row of untouched targets.
 
 "Try not to stand too close to anything valuable."
 
-## Chapter Two: The Fourth Discipline
+## Chapter Two: Applied Metaphysics
 
 Emily called it Arcane magic because *Erotically Funded Applied Metaphysics* had tested poorly with committees.
 

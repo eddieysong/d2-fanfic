@@ -227,11 +227,12 @@ async function splitGrailNovel() {
       closeCurrent();
       const chapterNumber = chapters.length + 1;
       const shortTitle = chapterMatch[3];
+      const slugTitle = chapterNumber === 2 ? "the-fourth-discipline" : shortTitle
+        .toLowerCase()
+        .replace(/[^a-z0-9]+/g, "-")
+        .replace(/^-|-$/g, "");
       current = {
-        slug: `grail-${String(chapterNumber).padStart(2, "0")}-${shortTitle
-          .toLowerCase()
-          .replace(/[^a-z0-9]+/g, "-")
-          .replace(/^-|-$/g, "")}`,
+        slug: `grail-${String(chapterNumber).padStart(2, "0")}-${slugTitle}`,
         title: chapterMatch[1],
         shortTitle,
         eyebrow: `The Fourth Discipline · ${String(chapterNumber).padStart(2, "0")} of 13`,
