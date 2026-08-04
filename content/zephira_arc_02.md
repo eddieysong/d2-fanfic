@@ -1,6 +1,6 @@
 ## Chapter Four: Found by Chance
 
-Zephira had been suspended for an hour when voices entered the outer courtyard.
+Zephira had been bent in the strappado for an hour when voices entered the outer courtyard.
 
 They arrived faintly through the former bath's broken roof: one low, dry and unmistakably feminine, the other lighter and carrying the bright impatience of someone losing an argument she considered educational.
 
@@ -14,7 +14,7 @@ They arrived faintly through the former bath's broken roof: one low, dry and unm
 
 Zephira became very still inside the dark-red rope.
 
-The curved silver plate beneath her responded to stillness by changing its own motion. A lower support tightened across the back of her raised thigh while another eased beneath her hips, redistributing her weight until her body turned a few slow degrees toward the doorway. Rope creaked against bronze skin. Her bound hands pulled uselessly behind her as the new angle made the lines framing her breasts grow firmer.
+The curved silver plate beneath her responded to stillness by changing its own tension. The line supporting her raised hips eased while the one leading from her bound wrists shortened, folding her a little farther toward the mosaic. Rope creaked against bronze skin. Her spread feet pressed harder into the floor as the new angle lifted her hands and made the lines framing her hanging breasts grow firmer.
 
 She stared at the half-closed door.
 
@@ -32,7 +32,7 @@ Naturally, somebody had come.
 
 Sand shifted. Footsteps approached the concealed entrance, then stopped before the door.
 
-Zephira's first impulse was to call out. Her second was to remain silent and let the strangers pass. The second impulse became absurd the moment the responsive plate lifted her folded knee another inch and drew a quiet breath from her throat.
+Zephira's first impulse was to call out. Her second was to remain silent and let the strangers pass. The second impulse became absurd the moment the responsive plate lifted her wrists another inch and drew a quiet breath from her throat.
 
 The voices stopped.
 
@@ -106,11 +106,11 @@ The ghost was a slender blonde woman in a scholar's fitted coat, short dress and
 
 Zephira had prepared herself to be seen by nobody. Being seen by two women who understood exactly what they were looking at was markedly worse.
 
-The harness held her above the cracked mosaic where blue fish had once surrounded a square bathing pool. Her wrists lay palm to palm behind her back, rope enclosing them from wrist to elbow. Crossing bands drew broad shoulders open, framed her breasts and narrowed around her taut waist. One leg hung long beneath her, ankle pulled back so her bare foot hovered above the floor with the arch extended and toes pointed. The other knee remained lifted to the side, its support leaving the old scar along her outer thigh visible beneath the slanting sunlight.
+The harness folded her above the cracked mosaic where blue fish had once surrounded a square bathing pool. Her feet stood far apart upon opposite edges, bare toes gripping uselessly whenever the tension changed. Her long legs rose to hips held high by a dark-red band. From there her torso sloped forward, wrists bound palm to palm behind her and pulled upward until her arms governed the angle of her shoulders. Crossing ropes framed full hanging breasts, settled slightly into their softness and narrowed around her firm waist.
 
-Strength had not disappeared from her body. That was the source of half the pleasure and nearly all the embarrassment. Muscular arms could not unfold. Powerful thighs could not close. The legs that carried her through the desert now contributed only shape, tension and the helpless little curl of one suspended foot whenever the plate moved.
+Strength had not disappeared from her body. That was the source of half the pleasure and nearly all the embarrassment. Trained arms could not lower. Powerful thighs could not close. The legs that carried her through the desert now contributed only shape and tension, while the posture presented her raised rear and every soft, vulnerable curve beneath it to the doorway.
 
-Her heavy dark-auburn braid lay over one shoulder. Loose strands clung to her warm temples. Zephira knew her face was flushed; the tightness around her crooked smile confirmed it even if the visitors were merciful enough not to mention the fact.
+Her heavy golden-blonde braid lay over one shoulder. Loose strands clung to her warm temples. Zephira knew her face was flushed; the tightness around her crooked smile confirmed it even if the visitors were merciful enough not to mention the fact.
 
 Emily's gaze went to the glowing three-loop signature upon the curved plate.
 
@@ -122,7 +122,7 @@ Zephira lifted one eyebrow. "Me."
 
 "Seven completed terms."
 
-"And you altered the lower suspension."
+"And you altered the lower return."
 
 "It kept sliding."
 
@@ -130,7 +130,7 @@ Zephira lifted one eyebrow. "Me."
 
 "The original counterline was designed by somebody with no respect for thighs."
 
-Emily considered Zephira's raised thigh, the line carrying its weight and the slight abrasion avoided by her alteration.
+Emily considered Zephira's raised hips, the line crossing beneath them and the inner-thigh pressure avoided by her alteration.
 
 "That is fair," she said.
 
@@ -142,7 +142,7 @@ Cordelia's attention remained upon Zephira's face. "Are you hurt?"
 
 The question mattered more than Zephira expected. Nothing in Cordelia's tone implied that the only reasonable answer was yes. She had not stepped forward, reached for the rope or allowed concern to become authority.
 
-Zephira tested her shoulders. The harness creaked and settled closer across her ribs. Her extended leg swung a fraction, broad strong foot pointing and then relaxing when she let its weight return to the ankle line.
+Zephira tested her shoulders. The harness creaked and settled closer across her ribs. Her wrists rose a fraction; both bare feet shifted against the mosaic, high arches tightening before she let her weight settle again.
 
 "Also no," she said. "It releases at moonrise. Assuming the maker understood celestial notation better than anatomy."
 
@@ -218,13 +218,13 @@ Emily turned toward her. "It is technically--"
 
 "Hers."
 
-The ghost considered several centuries of intellectual property. "Hers. I would still like to know how she activated the responsive suspension."
+The ghost considered several centuries of intellectual property. "Hers. I would still like to know how she activated the responsive posture."
 
 Zephira's face grew hotter. "By reading the inscription."
 
 "Which portion?"
 
-"The portion that said responsive suspension."
+"The portion that said responsive posture."
 
 "It does not say that."
 
@@ -236,13 +236,13 @@ Zephira's face grew hotter. "By reading the inscription."
 
 The plate began another sequence.
 
-The line under Zephira's raised thigh drew inward while the ropes supporting her hips eased. Her weight rolled gradually toward one side. A crossing beneath her breasts tightened and lifted; the waist lattice turned her in the opposite direction, making her body move inside a pattern that yielded nowhere useful.
+The line beneath Zephira's hips drew inward while the rope raising her wrists eased by a finger. Her weight traveled gradually from the pull in her shoulders to the spread of her legs. A crossing beneath her breasts tightened and lifted their soft weight; the waist lattice drew her farther backward, making her body move inside a pattern that yielded nowhere useful.
 
 She knew the cycle. She had chosen it. That did not make enduring it beneath two attentive gazes simpler.
 
-Zephira tried to shift ahead of the pressure. The harness converted her effort into a slower rub along her inner thigh. Her shoulders flexed against the enclosure of her arms. Her suspended toes curled.
+Zephira tried to shift ahead of the pressure. The harness converted her effort into a slower rub along her inner thigh. Her shoulders flexed against the enclosure of her raised arms. Her planted toes curled.
 
-"That," Emily said brightly, "is the responsive suspension."
+"That," Emily said brightly, "is the responsive posture."
 
 "Useful clarification."
 
@@ -268,7 +268,7 @@ The answer reached Zephira with almost physical force.
 
 Not training. Not research. Not combat flexibility. Lovely.
 
-She looked down as far as the harness permitted. The dark rope divided her torso into deliberate shapes, made a display of the strength it denied and held one powerful leg folded helplessly beside the other. A narrow sunbeam caught her ankle cuff. Her toes relaxed into the empty air.
+She looked down as far as the harness permitted. The dark rope divided her torso into deliberate shapes, made a display of the strength it denied and held both powerful legs uselessly apart. A narrow sunbeam caught one ankle cuff. Her toes flexed upon the blue mosaic.
 
 "Yes," Zephira said. "They are."
 
@@ -278,7 +278,7 @@ Gratitude came first. The disappointment returned beside it, inconvenient and im
 
 "That would be sensible."
 
-Emily studied the upper lines without crossing the threshold. "The hip return would improve if you shortened the support above your raised thigh by two fingers."
+Emily studied the upper lines without crossing the threshold. "The hip return would improve if you shortened the line above your wrists by two fingers."
 
 Zephira rolled one shoulder, testing what little movement the harness allowed. "Two?"
 
@@ -332,7 +332,7 @@ Cordelia crossed the room only after being asked. She placed the charm beside th
 
 Their eyes met.
 
-Being discovered had not transformed the session into someone else's scene. Cordelia had offered release and accepted no. She had treated ownership of the artifact as settled and privacy as something Zephira still possessed while naked, suspended and unable to cover any part of herself.
+Being discovered had not transformed the session into someone else's scene. Cordelia had offered release and accepted no. She had treated ownership of the artifact as settled and privacy as something Zephira still possessed while naked, folded open and unable to cover any part of herself.
 
 The respect felt warmer than rescue would have.
 
@@ -354,7 +354,7 @@ Then she shifted the upper support by one and a half fingers.
 
 The plate recognized its maker's correction.
 
-Rope moved across her with sudden, elegant purpose. The adjusted line allowed her hips greater travel while the chest harness preserved its opposition. When the curved plate rolled her weight forward, her lower body moved farther than her shoulders could follow. Dark-red bands tightened beneath both breasts. The line at her inner thigh slid with slow precision. Her hanging foot pointed so hard that the calf stood sharply defined, then her toes curled around nothing.
+Rope moved across her with sudden, elegant purpose. The adjusted line allowed her hips greater travel while the raised wrist line preserved its opposition. When the curved plate rolled her weight forward, her lower body moved farther than her shoulders could follow. Dark-red bands tightened beneath both breasts. The line at her inner thigh slid with slow precision. One heel lifted involuntarily until the calf stood sharply defined, then lowered when her toes could bear no more.
 
 "Oh," Zephira said.
 
@@ -366,9 +366,9 @@ For a little while, embarrassment at having been seen sharpened every sensation.
 
 She stopped swallowing sounds.
 
-The harness rocked in measured arcs. Rope rubbed where the changed geometry made her weight travel: ribs, breast, waist, inner thigh. Her body could contribute only small struggles, and each returned as pressure elsewhere. Zephira laughed once at the unfairness of a correction she had requested herself. The laugh became a gasp when the plate lifted her folded thigh.
+The harness shifted in measured increments. Rope rubbed where the changed geometry made her weight travel: ribs, breast, waist, inner thigh. Her body could contribute only small struggles, and each returned as pressure elsewhere. Zephira laughed once at the unfairness of a correction she had requested herself. The laugh became a gasp when the plate raised her wrists and hips together.
 
-Pleasure built without haste. It was not the purpose of the apparatus, merely the natural result of being warm, exposed and rubbed for hours inside an arrangement she found irresistibly beautiful. When orgasm came, it arrived through the whole pattern. Her bound arms drew tight. Her torso arched until the ropes framed both breasts under greater pressure. One suspended foot curled while the other pointed, and the strong body that had killed demons all week trembled helplessly in the air.
+Pleasure built without haste. It was not the purpose of the apparatus, merely the natural result of being warm, exposed and rubbed for hours inside an arrangement she found irresistibly beautiful. When orgasm came, it arrived through the whole pattern. Her bound arms drew tight. Her hips rose while her hanging breasts swayed inside their compressing frame. One foot lifted onto tiptoe while the other strained flat, and the soft athletic body that had killed demons all week trembled helplessly inside its own chosen posture.
 
 The plate continued moving after the release.
 
@@ -378,7 +378,7 @@ By the time moonlight replaced the sunbeam, the discovery no longer felt like an
 
 At moonrise, silver cuffs opened.
 
-The responsive plate lowered Zephira until both feet met the cracked mosaic. Her knees nearly failed. She caught one pillar, laughing under her breath while dark-red rope unwound from arms and torso and collected itself upon the floor.
+The responsive plate lowered Zephira's wrists and released the line holding her hips. Her knees nearly failed when she finally stood upright. She caught one pillar, laughing under her breath while dark-red rope unwound from arms and torso and collected itself upon the floor.
 
 Freedom returned in pieces. Hands first, stiff from hours behind her. Shoulders next. Then the ability to close her thighs, plant both feet and choose where her weight belonged. The ordinary power of her body felt newly pleasant after being absent so completely.
 
@@ -430,7 +430,7 @@ Drognan adjusted the third lens and peered again at the round artifact plate lyi
 
 "Academic consensus is expensive."
 
-The dial had been recovered from another ruined rest house east of the city. It was not the responsive suspension plate Cordelia and Emily had found her using; that artifact now rested wrapped in felt at the bottom of Zephira's private chest. This one consisted of a flat silver disk, four rotating rings and a narrow slot through which a length of enchanted cord could pass. Vohl's three-loop mark appeared on the back beside an inscription so small that Zephira had first assumed it was decorative.
+The dial had been recovered from another ruined rest house east of the city. It was not the responsive posture plate Cordelia and Emily had found her using; that artifact now rested wrapped in felt at the bottom of Zephira's private chest. This one consisted of a flat silver disk, four rotating rings and a narrow slot through which a length of enchanted cord could pass. Vohl's three-loop mark appeared on the back beside an inscription so small that Zephira had first assumed it was decorative.
 
 Drognan turned the outer ring. Tiny symbols aligned: a sunburst, four short rays, four curved crescents and a small skull wearing what looked offensively like a cheerful expression.
 
@@ -482,7 +482,7 @@ Zephira drank. She had spent the previous three days escorting a spice caravan t
 
 It had been a good week.
 
-Her body carried the pleasant heaviness of useful labor. Sun had deepened the brown along her arms and shoulders. A new scrape crossed one calf beneath the edge of her boot, while the rest of her old pale scars remained where experience had written them: hip, shoulder, outer thigh. Her dark-auburn braid hung thick and practical down her back. In the tavern mirror, amber-brown eyes looked rested, amused and already distracted by the silver disk hidden inside her pack.
+Her body carried the pleasant heaviness of useful labor. Sun had deepened the bronze along her arms and shoulders. A new scrape crossed one calf beneath the edge of her boot, while the rest of her old pale scars remained where experience had written them: hip, shoulder, outer thigh. Her golden-blonde braid hung thick and practical down her back. In the tavern mirror, sea-green eyes looked rested, amused and already distracted by the silver disk hidden inside her pack.
 
 Atma noticed the glance.
 
@@ -510,7 +510,7 @@ Ordinary life remained pleasantly close while she prepared. A ship's bell carrie
 
 Four hours left ample time for all of it.
 
-She stripped to a narrow linen wrap around her hips, then considered it, smiled at her own unnecessary modesty and removed that as well. The day's travel clothes folded beside the platform. Her powerful body looked almost ceremonial in the narrow shaft of daylight: broad shoulders, taut waist, muscular thighs and calves, bronze skin crossed by the pale history of surviving things. She unbound her hair and braided it again more loosely so the rope would not catch. The act felt domestic, almost ordinary. One could prepare for helplessness with the same practical attention used to sharpen a spear.
+She stripped to a narrow linen wrap around her hips, then considered it, smiled at her own unnecessary modesty and removed that as well. The day's travel clothes folded beside the platform. Her body looked almost ceremonial in the narrow shaft of daylight: long-limbed, sun-bronzed and athletic, with full breasts, a firm waist, rounded hips and powerful thighs whose surface remained invitingly soft. Pale scars crossed that classical shape like the small history of surviving things. She unbound her hair and braided it again more loosely so the rope would not catch. The act felt domestic, almost ordinary. One could prepare for helplessness with the same practical attention used to sharpen a spear.
 
 The restraint system had come in pieces gathered over months. Padded cuffs from a Kurast cache. A responsive rope purchased from a merchant who insisted it was intended for securing unstable cargo. Two silver ankle bands bearing Vohl's mark. The duration dial from the rest house. None had been designed as a single apparatus. Zephira liked combining them.
 
@@ -634,7 +634,7 @@ By midnight, thirst had become noticeable.
 
 By dawn, it occupied its own chair in her thoughts.
 
-The artifact rotated her upright as sunlight reached the window. Zephira's toes hung six inches above the platform. Her wrists remained folded high against her back. Rope had left deep red impressions over shoulders and ribs, not injuries but firm evidence of duration. Her braid had partly loosened. Auburn hair stuck to her temples, and the handsome face in the shield looked less amused than the one that had begun.
+The artifact rotated her upright as sunlight reached the window. Zephira's toes hung six inches above the platform. Her wrists remained folded high against her back. Rope had left persistent rosy impressions over shoulders and ribs, not injuries but clear evidence of duration. Her braid had partly loosened. Blonde hair stuck to her temples, and the handsome face in the shield looked less amused than the one that had begun.
 
 "Day two," she told it.
 
@@ -892,7 +892,7 @@ Atma had converted one of the tavern's rear storerooms into a bathing room after
 
 Atma met them at the rear door.
 
-She looked first at Zephira's face, then at Cordelia's supporting arm, the dried rope lines around one wrist and the dark-auburn hair coming loose in dusty strands. Her expression did not change.
+She looked first at Zephira's face, then at Cordelia's supporting arm, the dried rope lines around one wrist and the golden-blonde hair coming loose in dusty strands. Her expression did not change.
 
 "You missed five suppers," she said.
 
@@ -930,7 +930,7 @@ Zephira lowered herself into the basin.
 
 Warm water found every rope mark. She hissed, gripping the rim until the first sharpness dissolved into relief. Cordelia sat with her back against the closed door and drank tea, giving Zephira as much privacy as remaining in the same room permitted.
 
-The arrangement was strangely comfortable. Zephira washed dust from her hair. Auburn strands darkened and floated around broad shoulders. Salt left sun-browned skin; old scars reappeared clean and pale beneath the water. She rubbed gently around wrists and ribs, feeling each indentation the rope had made. The marks pleased her despite everything. They were evidence not only of the mistake but of the original desire, and rescue had not made that desire foolish.
+The arrangement was strangely comfortable. Zephira washed dust from her hair. Blonde strands darkened and floated around strong shoulders. Salt left sun-browned skin; old scars reappeared clean and pale beneath the water. She rubbed gently around wrists and ribs, feeling each indentation the rope had made. The marks pleased her despite everything. They were evidence not only of the mistake but of the original desire, and rescue had not made that desire foolish.
 
 "I liked much of it," she said.
 
@@ -1288,7 +1288,7 @@ Remote did not mean invisible. Nobody could see the chamber from the streets, bu
 
 Zephira liked that.
 
-She laid out her equipment beneath the broken dome. Padded mat. Duration dial. Responsive plate. Silver ankle bands. Blue rope already measured and coiled. Two water skins, this time connected to a long drinking tube fixed where any selected posture could reach it. Bread and fruit remained in her pack because she had no intention of being here long enough to need either.
+She laid out her equipment beneath the broken dome. Padded mat. Duration dial. Responsive plate. Silver ankle bands. Blue rope already measured and coiled. A padded bronze spreader bar rested across the far half of the mat, with ankle cuffs at its ends and a paired set of wrist cuffs close together at its center. Beside it waited a shorter articulated bar ending in a low padded neck ring. Two water skins, this time connected to a long drinking tube fixed where any selected posture could reach it. Bread and fruit remained in her pack because she had no intention of being here long enough to need either.
 
 She placed the calling charm upon a narrow shelf.
 
@@ -1296,7 +1296,7 @@ It remained dark.
 
 She stripped beneath the stars.
 
-Moonlight silvered the sun-brown of her shoulders and picked out the strong planes of abdomen and thighs. Her reflection waited in a tall, tarnished astronomical plate angled against the wall. Naked, unbound and carrying no weapon, she looked less vulnerable than merely prepared. The transformation had not begun.
+Moonlight silvered her sun-bronzed shoulders, the soft curves of her breasts and hips, and the quiet strength beneath her abdomen and thighs. Her reflection waited in a tall, tarnished astronomical plate angled against the wall. Naked, unbound and carrying no weapon, she looked less vulnerable than merely prepared. The transformation had not begun.
 
 Zephira sat cross-legged upon the mat and fed rope through the responsive plate.
 
@@ -1308,7 +1308,7 @@ Four straight rays.
 
 She checked from three angles, then laughed quietly at herself and checked a fourth.
 
-The inner rings selected a floor arrangement rather than suspension. Zephira wanted to feel weight tonight: knees upon padding, hips held low, the slow discovery that muscular legs could not stand once ankle and thigh lines opposed each other. She chose moderate compression, limited responsive motion and one posture change after two hours.
+The inner rings selected a floor arrangement rather than suspension. Zephira wanted to feel weight tonight: knees upon padding, hips held low, the slow discovery that strong legs could not stand once ankle and thigh lines opposed each other. She chose moderate compression, limited responsive motion and one posture change after two hours. For the second posture she selected the two-bar frame and confirmed its unusually honest warning: **NO RESTING CONFIGURATION.**
 
 The silver cuffs enclosed her ankles first.
 
@@ -1344,7 +1344,7 @@ Rope answered everywhere.
 
 The familiar pleasure returned so strongly that she laughed. Here it was: texture against clean skin, weight made deliberate, posture imposed by instructions she had given while free. Her strong arms could neither unfold nor reach around her. Her legs, capable of carrying her across half a desert, remained arranged beneath her with knees open and feet displayed behind. She turned toward the metal plate and saw exactly what she had hoped to see.
 
-Dark-auburn hair over one shoulder. Amber eyes bright. Powerful bronze body made elegant by blue lines. Breasts lifted within rope. Muscular thighs spread and folded uselessly. Bare feet crossed by careful knots, toes curling whenever she tested the arrangement.
+Golden-blonde hair over one shoulder. Sea-green eyes bright. A statuesque, softly athletic body made elegant by blue lines. Breasts lifted within rope, their warm flesh yielding subtly around the flat bands. Strong thighs spread and folded uselessly. Bare feet crossed by careful knots, toes curling whenever she tested the arrangement.
 
 "Very cute," she said.
 
@@ -1382,35 +1382,39 @@ The distinction made every rope feel closer.
 
 At two hours, the artifact changed her posture.
 
-Upper lines lifted from the wall. Zephira's bound arms rose behind her until she folded forward, broad shoulders pulled open and breasts hanging within their frame. The lower harness drew her hips upward while knees remained padded and far apart. Her chest hovered above the mat. Her braid fell toward the floor. Toes left the padding and pointed uselessly behind her.
+The bronze spreader bar rolled into place across the mat. Zephira's ankle lines released only long enough for the silver cuffs to carry each foot outward and lock it at an opposite end. Her legs opened into a wide, unalterable angle. The wrist rope followed, drawing both hands from behind her and fastening them close together in the paired cuffs at the bar's center, low between the thighs she could no longer close.
+
+The shorter bar rose last. Its neck ring settled low around the base of Zephira's throat, broad and padded, before the other end joined the central hub between her wrists. It did not choke or force her head. It simply made every possible position answer to the same geometry.
+
+Lying back kept her neck comfortable but drew her wrists downward between spread legs and displayed the whole soft line of breasts, stomach and open hips beneath the moon. Sitting lifted the wrist cuffs toward her sex and made the neck bar pull her shoulders upright, leaving her breasts presented and her thighs without even the illusion of closing. Rolling to either side twisted the long bar across the mat and made one ankle carry the complaint of the other. Curling forward was impossible; stretching away pulled at the neck ring. There was no painful position and no concealing one. There was only a choice of which vulnerability to inhabit.
 
 The arrangement was more exposing than the first.
 
-She could see it only by turning her head toward the bronze plate. The effort tightened her shoulder lines. A tall, muscular Amazon looked back at her from an unmistakably helpless position, rump raised, breasts suspended, every useful limb folded or restrained. Blue rope made symmetry out of surrender.
+Zephira turned her head toward the bronze plate. A tall, statuesque Amazon looked back from the mat, golden braid spilling across one breast, wrists displayed at the center of the bar and ankles fixed at its distant ends. Blue rope framed her soft athletic curves; bronze and silver converted four useful limbs into ornaments around an open body.
 
 Zephira's mouth curved.
 
 "Oh," she whispered. "That is excellent."
 
-The responsive line beneath her shifted when she spoke. Pleasure gathered with the patient certainty of tide. She did not chase it. Chasing was almost impossible in the posture; movement began in strong muscles and ended as a tiny tightening somewhere else. That futility was the point. Her body had become capable of feeling and incapable of arranging what it felt.
+The responsive line beneath her shifted when she spoke. Pleasure gathered with the patient certainty of tide. She did not chase it. Chasing was almost impossible in the frame; movement began in strong muscles and ended as a tiny tightening somewhere else. That futility was the point. Her body had become capable of feeling and incapable of arranging what it felt.
 
-The idea returned each time control failed. When Zephira tried to roll one shoulder and only tightened the ropes around her breasts, when her toes curled in the air or a low involuntary sound escaped her, she remembered that Cordelia knew what sort of night she had chosen.
+The idea returned each time control failed. When Zephira tried to sit and found the second bar preserving the humiliating distance between neck and wrists, when her toes curled at opposite ends of the spreader or a low involuntary sound escaped her, she remembered that Cordelia knew what sort of night she had chosen.
 
 The imagined witness remained absent. That absence preserved the session as Zephira's own while knowledge made it feel shared at one careful remove.
 
-Her arousal rose slowly, rooted less in stimulation than in position, restraint and the impossibility of changing either. The rope did eventually carry her to orgasm. It happened when a long effort to shift her weight drew three lines at once: one tightening around the breasts it framed, one pressing the waist forward, one dragging firmly between open thighs.
+Her arousal rose slowly, rooted less in stimulation than in position, restraint and the impossibility of finding comfort without becoming more exposed. The rope did eventually carry her to orgasm. It happened when a long effort to shift from lying to sitting drew three lines at once: one tightening around the breasts it framed, one pressing the waist forward, one dragging firmly between open thighs while the neck bar denied the last inch of concealment.
 
-Release built through her powerful body and found nowhere to spend itself except against the pattern holding her. Bound arms pulled. Knees pressed into padding. Her back arched as much as the harness allowed, making blue rope bite gently into bronze skin. Feet pointed hard behind her, toes spreading and curling through the peak.
+Release built through her powerful body and found nowhere to spend itself except against the pattern holding her. Bound wrists pulled at the center cuffs. Ankles strained at opposite ends. Her back arched as much as the neck bar allowed, making blue rope press a little deeper into yielding breasts, waist and hips without hurting her. Feet pointed against their distant restraints, toes spreading and curling through the peak.
 
 The orgasm was not enormous. It did not destroy monsters, fill a Rose or become a counted objective. It was private pleasure punctuating four hours of chosen helplessness.
 
 Knowing Cordelia knew made it warmer.
 
-Afterward Zephira remained folded forward, breathing beneath the quiet stars. The ropes did not release. Two hours remained. Her body softened around the pattern, and the pattern held what she no longer had strength to hold herself.
+Afterward Zephira reclined within the frame, breathing beneath the quiet stars. The restraints did not release. Two hours remained. Her body softened around the blue pattern, skin settling more fully against rope and metal while the bars held what she no longer had strength to hold herself.
 
 That was perhaps her favorite part.
 
-Not climax. Not risk. The waiting afterward, when desire subsided enough for every physical fact to become clear. Hands remained behind her. Legs remained arranged. The final knot remained unreachable. She had no task except inhabiting the choice made earlier.
+Not climax. Not risk. The waiting afterward, when desire subsided enough for every physical fact to become clear. Wrists remained at the bar's center. Ankles remained at its edges. The rigid connection to her neck ring made even a weary attempt to curl up impossible. She had no task except inhabiting the choice made earlier.
 
 At the third hour, she caught herself wondering what Cordelia would say if she were sitting against the wall.
 
@@ -1422,11 +1426,11 @@ Zephira tested that image and felt an immediate response low in her body.
 
 The last hour passed slowly and perfectly.
 
-When the dial chimed, four straight rays dimmed together. The upper lines lowered Zephira until her chest met the mat. Rope loosened from arms, ribs, waist, thighs and feet in reverse order. Silver cuffs opened last.
+When the dial chimed, four straight rays dimmed together. The neck ring opened first and the shorter bar folded itself flat. The center cuffs released her wrists; the distant ankle cuffs followed. Only then did rope loosen from breasts, ribs, waist, thighs and feet in reverse order.
 
 Zephira did not move for several minutes.
 
-Freedom returned as a collection of possibilities: straighten elbows, close knees, roll onto one hip, reach the water with her own hand. Each felt almost extravagant. She eventually sat upright amid loose blue coils, auburn braid tangled across one breast and moonlight silvering the rope impressions over her skin.
+Freedom returned as a collection of possibilities: straighten elbows, close knees, roll onto one hip, reach the water with her own hand. Each felt almost extravagant. She eventually sat upright amid loose blue coils, blonde braid tangled across one breast and moonlight silvering the rope impressions over her skin.
 
 The calling charm remained dark upon the shelf.
 
