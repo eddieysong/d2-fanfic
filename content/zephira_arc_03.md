@@ -94,7 +94,7 @@ Cordelia studied her. Not suspiciously, not searching for a hidden confession Ze
 
 "We will. Before sunset."
 
-Zephira selected another date because her hands required occupation. Cordelia's knowledge of where she had played last time had made the solitude sharper and sweeter. This invitation was different. Someone would see the preparation, the moment when Zephira's own capable fingers made themselves useless and the expressions she usually allowed no mirror to keep. The thought tightened pleasantly beneath her waist.
+Zephira selected another date because her hands required occupation. Cordelia's knowledge of where she had played last time had made the solitude sharper and sweeter. This invitation was different. Someone would see the preparation, the moment when Zephira's own capable fingers made themselves useless and the expressions she usually allowed no witness to see. The thought tightened pleasantly beneath her waist.
 
 She did not intend to inspect why.
 
@@ -416,7 +416,389 @@ The merchant had lied about almost everything.
 
 It was excellent rope.
 
-## Chapter Nine: Two Locks
+## Chapter Nine: Special Delivery
+
+Cordelia invited Zephira to the Monastery over breakfast.
+
+She did it casually, between a complaint about the previous evening's pear wine and the identification of an amulet which protected its wearer from precisely enough cold to survive an aggressive dessert. Atma's tavern had not yet filled. Morning light entered through the shutters in bright patterned bars, illuminating bread, soft cheese, sliced melon and the pale impressions still circling Zephira's wrists.
+
+"Charsi wants to meet the woman who keeps improving Vohl's equipment," Cordelia said. "Kashya wants an Amazon to review the western drills. Warriv has a caravan returning east in three days. You could visit."
+
+Emily floated upside down above the table. "I have a workshop there."
+
+"You have a workshop everywhere," Zephira said.
+
+"A productive scholar requires options."
+
+Zephira tore bread and considered the invitation. The Rogue Monastery was no longer a besieged ruin. Trade crossed its gate, recruits trained in the cloister and the lower passages had been cleared often enough that even the skeletons had begun to regard resurrection as repetitive labor. She had visited on contracts, slept in the camp and argued with Kashya about bow stance. None of that made staying as Cordelia's invited guest remarkable.
+
+The timing did.
+
+Cordelia had watched her make herself helpless. She had touched within the framework Zephira provided, found pleasure there and returned every piece of control when the lamps expired. Going east now felt like carrying that changed knowledge into the ordinary daylight of Cordelia's home.
+
+"How does the caravan transport specialized equipment?" Zephira asked.
+
+Cordelia paused with the disappointing amulet between two fingers. "In crates, generally."
+
+"Secure crates?"
+
+Emily rotated upright.
+
+Cordelia placed the amulet down. Her amber-brown eyes acquired the patient attention which meant she had already understood and intended to make Zephira explain anyway. "What are you proposing?"
+
+"You invited me to visit."
+
+"I did."
+
+"I am considering the appropriate method of arrival."
+
+Atma passed their table carrying a tray of cups. She heard enough to keep walking and not enough to avoid smiling.
+
+Cordelia folded her hands. "As a passenger?"
+
+"Predictable."
+
+"A caravan guard?"
+
+"Respectable."
+
+"Cargo."
+
+Zephira ate the bread.
+
+Emily clapped soundlessly above them.
+
+Cordelia's expression did not change, but something warm entered it. "Bound?"
+
+"Properly."
+
+"For the entire journey?"
+
+Zephira looked toward Warriv through the open courtyard. The caravan master sat beneath an awning with three ledgers, two cups and the burdened posture of a man whose profession required other people to understand time. The western road took three days in good weather. Four when mountain rain slowed the wagons. Zephira had crossed it on foot, horseback and once clinging beneath a grain cart while bandits searched above her.
+
+Inside a locked chest would be new.
+
+"Until you unpack me at the Monastery," she said.
+
+Cordelia's gaze dropped briefly to the wrist marks, then returned to her face. "Blindfolded?"
+
+"Yes."
+
+"Gagged?"
+
+"Yes."
+
+"Able to move?"
+
+"Enough not to become boring. Not enough to become useful."
+
+Emily descended until her elbows rested through the table. "The Beneficent jewelry would improve the journey."
+
+Zephira looked at Cordelia.
+
+Cordelia looked at Emily.
+
+"No," she said.
+
+Zephira's disappointment arrived quickly enough to betray itself.
+
+Cordelia's mouth curved. "Emily does not summon the replicas. I do."
+
+The correction landed lower than Zephira expected.
+
+Cordelia could call the jewelry into being, fit it to another woman and choose which of its inherited properties awakened. Emily might advise, annotate and become intolerable about historical credit. The act itself belonged to Cordelia.
+
+"One addition of my choosing," Cordelia said. "Agreed before you are gagged. No combat circuit and no Cataclysm. You may refuse the addition now or the journey entirely at any point before the chest closes. Afterward, I follow the arrangement we agree upon."
+
+Zephira felt the familiar excitement of a term becoming exact. "Your addition is the set."
+
+"Yes."
+
+"All of it?"
+
+"You asked to be entertained."
+
+Emily raised a scholarly finger. "Historically, the complete set has entertained beyond specification."
+
+"All of it," Zephira said.
+
+The chest required two days to prepare.
+
+Cordelia rejected a grain crate because its boards flexed, a merchant chest because the brass corners projected inward and an iron-bound strongbox because its owner used the phrase *air is an indulgence.* They settled upon a cedar traveling chest normally used for ceremonial fabric. It was long enough for Zephira to lie curled upon one side and deep enough that her shoulders would not touch the lid. Cordelia lined it with folded quilts, installed four recessed anchor rings and added a narrow drinking tube connected to a covered skin beneath the false floor. Ventilation slots hid inside the carved border.
+
+None of those provisions made the chest less inescapable once locked. They merely made three days inside it an experience rather than an anatomical argument.
+
+Zephira inspected the finished interior alone first. She lay inside wearing her clothes, rolled from shoulder to hip and tested every surface with the thoroughness she applied to an unfamiliar ruin. The padding absorbed hard edges. The interior rings held her chosen curl without forcing weight through a joint. She could breathe, swallow and flex her feet. She could not sit beneath the closed lid.
+
+"Acceptable," she decided.
+
+Warriv examined the exterior.
+
+"Personal equipment," Cordelia told him.
+
+He looked from the reinforced lock to Zephira, who stood beside it with both arms folded.
+
+"Fragile?" he asked.
+
+"Durable," Zephira said.
+
+"Does it require special handling?"
+
+"It objects to being dropped."
+
+"Most equipment does."
+
+Warriv wrote **SORCERESS—PERSONAL, DO NOT OPEN** upon the manifest and charged Cordelia the rate for one large chest. Zephira was offended to discover she cost less to transport as cargo than as a guard.
+
+They began before sunrise on the third morning in Zephira's room above Elzix's inn.
+
+The harbor remained dark beyond the shutters. Wagons assembled below in a confusion of harness bells, muttered inventories and camels issuing theological objections to labor. Zephira had bathed, combed her thick golden-blonde hair and braided it flat down her back. She wore a narrow red silk wrap and nothing else. Armor, weapons and ordinary clothes had already been packed in a second, much less interesting trunk.
+
+The cedar chest waited open upon the floor.
+
+Cordelia stood beside it in traveling clothes, black hair secured for the road. Emily hovered near the ceiling and had been forbidden to recommend labels.
+
+"Last review," Cordelia said. "Three-day expected journey, four if the pass floods. You remain bound, blindfolded and gagged from here until I open the chest in a private room at the Monastery. I may adjust the jewelry through the cedar. I will provide water at each stop without opening the lid. If you sincerely need the arrangement ended rather than merely dislike it, the calling charm is beneath your choker and will respond to you as before."
+
+Zephira nodded.
+
+"Do you still want this?"
+
+"Very much."
+
+Cordelia touched two fingers beneath Zephira's chin.
+
+Silver appeared around her nipples first.
+
+The rings formed with cool precision, one around each darkened peak, joined by a delicate chain which drew a startled breath from her when its weight settled. Bracelets followed at both wrists, engraved with tiny amber channels. Fine ankle chains encircled her above the heel. The fourth piece manifested more intimately, a small silver ring fitting itself against the most sensitive point between her thighs. Last came the choker, smooth and close around her throat without restricting speech or breath.
+
+The complete set recognized the red wrap.
+
+Silk withdrew into narrow bands across Zephira's breasts and hips, preserving almost none of its former modesty. Bronze skin remained bare from shoulder to waist except where straps framed full curves and crossed her taut stomach. The lower portion became a high-cut arrangement scarcely more substantial than the jewelry it displayed. No heels appeared because Zephira had wisely worn no shoes.
+
+"Practical travel attire," she said.
+
+"The set values access," Cordelia replied.
+
+Emily examined the transformation. "It also values optimism."
+
+The first vibration began low and soft.
+
+Zephira's stomach tightened. The clitoral ring held the pulse close while the joined nipple rings answered with a lighter echo. Nothing drove her rapidly toward release. The set instead made every point of contact unusually legible: silk at the crease of her hip, morning air over exposed breasts, Cordelia's fingers checking the choker.
+
+"Entertained?" Cordelia asked.
+
+"Potentially."
+
+"Your nipples appear convinced."
+
+"Cold room."
+
+"Of course."
+
+They bound her standing beside the chest.
+
+Cordelia crossed Zephira's wrists low behind her and enclosed them in padded cuffs before joining the bracelets to a short central ring. A broad line circled her above the knees, keeping her thighs close without compressing them harshly. Separate ankle cuffs connected to the interior anchors, allowing her feet to move only within a few inches. A soft torso harness would hold ribs, waist and hips against the padded side so the road could not roll her bodily around the chest.
+
+Courteous Silence went between her teeth. Cordelia tightened its straps beneath the flat braid, then asked the final questions while Zephira could still answer by movement.
+
+"Pain?"
+
+Zephira shook her head.
+
+"Breathing easily?"
+
+She nodded.
+
+"Continue?"
+
+The pause was not uncertainty. Zephira wanted to feel the moment before it became unavailable: standing in her familiar room, weapons within sight, a woman before her offering one last uncomplicated refusal. In minutes she would be unable to see, speak, stand or determine where the road carried her. Cordelia would decide when the lid opened.
+
+Zephira nodded.
+
+The blindfold descended.
+
+Darkness made the room vanish before the restraints did. Cordelia guided her carefully onto one side inside the chest. Zephira folded her knees. Ankle lines clicked into the recessed rings; the torso harness connected at chest and hips. A final short line joined her wrist ring to an anchor behind the small of her back, leaving her hands close enough to feel and too fixed to travel around either hip.
+
+Cordelia placed the drinking tube near her mouth, then withdrew it into its clip.
+
+The jewelry grew warmer.
+
+"Comfortable?" Cordelia asked.
+
+Zephira nodded against the quilt.
+
+"Helpless?"
+
+She attempted one complete movement—wrists, knees, hips, shoulders. Every part met its corresponding limit. The chest permitted her to curl more tightly and almost nothing else.
+
+Zephira nodded again.
+
+Cordelia's hand moved slowly over her exposed hip. "Very pretty."
+
+Then the lid closed.
+
+The lock sounded larger from inside.
+
+For several breaths, nothing happened. Zephira heard Cordelia move around the room, close a trunk and exchange some comment with Emily too softly for the words to pass through cedar. The jewelry maintained a patient hum against nipples and clitoris. Her own breath warmed the gag.
+
+Hands lifted the chest.
+
+The world tilted. Zephira's torso harness took her weight and returned it across broad bands. She could not brace with her arms or see the doorway pass. Footsteps descended stairs beneath her. Elzix's voice approached, remarked that Cordelia's equipment appeared unusually opinionated, and receded after Cordelia answered something which made two porters laugh.
+
+Zephira pulled once against the wrist anchor.
+
+The bracelets detected resistance and tightened her arms neatly into place. The nipple rings answered through their chain. Her muffled objection remained inside the box.
+
+She began to understand the journey's appeal.
+
+The chest settled into a wagon. Crates thudded around it. Rope passed over the lid and drew tight. Wheels began to move.
+
+Lut Gholein announced its departure through sound: vendors shouting before dawn, iron rims crossing bridge stones, a harbor bell, guards inspecting papers and one camel protesting until distance transformed it into somebody else's problem. Zephira recognized the outer gate by the echo. After that, the city dissolved into wheels, harness bells and road.
+
+Blindness removed scale from time. A minute of smooth travel could be mistaken for ten. A steep grade stretched each jolt into an event. The chest kept Zephira from being thrown, but it did not prevent every vibration of the wagon from entering her restrained body. Her breasts shifted inside the minimal silk. The chain between their rings trembled. The clitoral ring turned the road's smallest irregularities into maddening little pulses.
+
+Cordelia changed the settings without warning.
+
+The first adjustment arrived perhaps an hour after departure. The nipple rings brightened and began alternating with the lower piece: left, right, between her thighs, then stillness long enough for anticipation to become its own sensation. Zephira tested the gag with an indignant sound.
+
+Two taps answered through the lid.
+
+Cordelia was riding beside the wagon.
+
+Knowing that made the box feel smaller.
+
+At stops, the drinking tube lowered to her mouth. Cordelia always touched the chest twice first. Zephira drank, swallowed and felt the tube withdraw. The lid never opened. No one asked whether she wished to continue; that question had been answered before the blindfold, and the arrangement's power came partly from Cordelia honoring the answer after Zephira's temporary complaints became impossible to distinguish from pleasure.
+
+The complete set made climax difficult. It did not prevent approach.
+
+Again and again, wagon motion, jewelry and confinement gathered sensation until Zephira's body tightened toward release. Each time the choker drew the edge farther away. Her nipples remained swollen beneath the tiny silk bands. Heat accumulated between thighs held too closely to provide useful friction. Bound hands flexed uselessly at her back whenever the lower ring found a stronger rhythm.
+
+She had asked to be entertained.
+
+By what might have been the second night, the request seemed recklessly broad.
+
+Rain struck the chest. Wheels slowed in mud. Voices moved around the halted wagon, too distorted by wood for Zephira to identify. The jewelry chose that quiet interval to abandon rhythm entirely and sustain one low, unwavering vibration.
+
+Zephira curled as far as the knee band allowed. The motion pulled her wrist tether, tightened the torso harness and made the rings at her breasts sway against sensitized skin. Pleasure climbed, paused and remained there—close enough to command every thought, denied enough to make her forget which argument she had intended to present upon arrival.
+
+The set eased.
+
+Zephira sagged into the quilts with an accusatory noise around the gag.
+
+Emily's cheerful voice came faintly through the lid. "She has reached the stage where gratitude and homicide are adjacent."
+
+"I know," Cordelia said.
+
+"Her feet are curling."
+
+"How can you see through the chest?"
+
+"I cannot. She always curls them."
+
+Zephira resolved to become less predictable.
+
+The ankle chains pulsed warmly around both feet.
+
+Her toes curled.
+
+On the final day—or what Zephira hoped was the final day—the road changed. Smooth packed earth replaced stone. Voices multiplied. A smith's hammer sounded somewhere ahead, followed by the hollow call of a sentry and the familiar layered noise of a camp established around permanent walls.
+
+The Monastery.
+
+Relief entered Zephira first. Arousal followed immediately, sharpened by uncertainty. Arrival did not mean release. Cordelia had promised to unpack her in private, not at the gate, and the chest still had to pass through whatever administrative structure Kashya had imposed upon personal equipment.
+
+The wagon stopped.
+
+"Manifest," Kashya said outside.
+
+Warriv began reading supplies. Grain. Lamp oil. Lut Gholein steel. Two cases of wine which Elzix had described as medicinal. Cordelia's personal chest.
+
+Silence.
+
+"That one hums," Kashya observed.
+
+"Enchanted equipment," Cordelia said.
+
+"Fragile?"
+
+From somewhere near the chest, Emily whispered, "Durable."
+
+Cordelia's laugh became a cough.
+
+Kashya waited. Zephira pictured the commander's cool eyes moving across the reinforced cedar, the private label and perhaps the smallest vibration reaching the exterior.
+
+"Take it to the east guest room," Kashya said at last. "Before the recruits become educationally interested."
+
+The chest moved again.
+
+Zephira counted stairs by impact, lost count at eleven and heard a door close around the new quiet. Rope loosened from the exterior. The lock turned.
+
+Light did not reach her through the blindfold, but cool air entered when the lid opened. Cordelia's hands disconnected the torso anchors before touching anything intimate. The wrist tether followed, then ankles and knees. Zephira remained curled while circulation returned in warm prickles.
+
+"May I remove the blindfold and gag?" Cordelia asked.
+
+Zephira nodded.
+
+Darkness lifted into a small stone room washed with afternoon sun. Cordelia knelt beside the chest. Emily hovered over one shoulder. Beyond the closed door waited the restored Monastery, Charsi's forge, Kashya's drills and an ordinary visit Zephira had made extraordinary before it began.
+
+Cordelia unfastened Courteous Silence.
+
+Zephira worked her jaw. "Your road maintenance is appalling."
+
+"My road?"
+
+"You invited me."
+
+"You selected the transport."
+
+"Administrative distinction."
+
+Cordelia opened the last cuff, but left the jewelry in place. "Would you like me to dismiss the set?"
+
+Three days of withheld release, near-constant sensitivity and helpless anticipation gathered behind the question. Zephira could stand now. She could close her legs, use both hands and reclaim every ordinary capability. Dismissing the jewelry would return the rest.
+
+She looked at Cordelia.
+
+"Not yet," she said.
+
+Emily brightened. "The visit begins well."
+
+Cordelia helped Zephira sit upright inside the chest. Strong legs unfolded slowly over its edge; bare feet found the stone, toes flexing beneath warm ankle chains. The Amazon who emerged looked rumpled, marked by broad restraint lines and entirely unlike cargo except for the manifest still tied to one wrist.
+
+Cordelia removed the tag.
+
+**DELIVERED IN GOOD CONDITION**, Warriv had written beneath the original entry.
+
+Zephira took it from her and folded it into her pack.
+
+The journey had taught her something she would not dignify with analysis: creating the predicament remained delicious, but trusting another woman to carry it through distance, darkness and every temporary objection possessed an appeal all its own.
+
+She stood, somewhat unsteadily.
+
+"Where is Charsi?"
+
+"At the forge."
+
+"Kashya?"
+
+"Training field."
+
+"Guest bath?"
+
+"End of the passage."
+
+Zephira considered the order.
+
+"Bath," she decided. "Then food. Then you may explain what setting you used in the rain."
+
+Cordelia's expression became serenely innocent.
+
+"There were several," she said.
+
+Zephira followed her into the Monastery.
+
+## Chapter Ten: Two Locks
 
 Cordelia rejected the first design because it gave Zephira too much control.
 
@@ -742,7 +1124,7 @@ Cordelia tried to lean back. The linked line held her. Zephira tested the same r
 
 "I did not invite judgment."
 
-They found a slow mutual sway. Cordelia's breasts moved against Zephira's with every pass, soft weight constrained by ivory bands. Zephira's nipples rubbed through the thin red covering until Cordelia hooked the edge with her chin and tugged it downward. The garment slid beneath the rope.
+They found a slow mutual sway. Cordelia's breasts moved against Zephira's with every pass, soft weight constrained by ivory bands. Zephira's nipples rubbed through the thin red covering until Cordelia caught the loosened upper edge carefully between her teeth and drew it downward. The garment slid beneath the rope.
 
 "That was not self-inflicted," Zephira said.
 
@@ -898,17 +1280,821 @@ The ghost folded her arms. "I warned the department that incorporeality would ev
 
 They threw cushions through her until she agreed to move the tray by magic.
 
-## Chapter Ten: The Next Discovery
+## Chapter Eleven: An Impractical Pillow
 
-At breakfast, Zephira discovered that six hours of beautifully distributed weight remained six hours of weight.
+Two evenings after the workshop, Cordelia announced that Zephira had been sleeping incorrectly.
 
-She approached the campfire with the measured stride of a woman refusing to acknowledge her inner thighs. Cordelia walked beside her with equal dignity and marginally greater success. Both had bathed, dressed and restored their hair to forms acceptable in daylight. Zephira wore leather trousers, a sleeveless tunic and her thick golden-blonde braid down her back. Cordelia had chosen a blue traveling robe whose generous sleeves concealed the temporary bands around her wrists.
+Zephira looked up from the whetstone in her hand. They sat outside the east guest room beneath a covered walk, where the Monastery wall retained the last warmth of sunset. Her spear lay across her knees. Cordelia occupied the bench beside her with a Grail ledger, three unidentified rings and the grave expression of a woman whose most recent discovery had increased stamina by one point.
+
+"I have been sleeping since before you learned to cast," Zephira said.
+
+"That does not establish quality."
+
+"It establishes practice."
+
+Cordelia turned a page. "You occupy too much of the mattress while remaining insufficiently useful."
+
+Zephira stopped sharpening.
+
+Emily's head appeared through the wall between them. "She wants a body pillow."
+
+Cordelia closed the ledger upon Emily's incorporeal forehead. The book passed through her and struck the bench.
+
+"I had gathered that," Zephira said.
+
+The previous night's rest had been entirely respectable. Zephira had slept alone in the east guest room, awakened before dawn and drilled with the Rogues until Kashya stopped correcting her corrections. Cordelia had run the Pit twice, found nothing useful and returned in time to criticize the angle of Zephira's spear during supper. Their six-hour experiment remained present only as faint lines around wrists and the care with which both women reached overhead.
+
+Tonight's suggestion seemed smaller.
+
+That made it unexpectedly appealing.
+
+"What kind of pillow?" Zephira asked.
+
+Cordelia opened the ledger again. "Secure. Warm. Less argumentative than the current model."
+
+"The current model has a spear."
+
+"A poor pillow feature."
+
+Emily floated fully into the passage. "I can recommend an arrangement optimized for lateral compression, soft-body support and the inability to object when the user changes position."
+
+Zephira set aside the whetstone. "You may recommend it from somewhere else."
+
+"Where?"
+
+"Surprise me."
+
+Emily vanished into the wall with the offended posture of a scholar being denied a lecture.
+
+Cordelia watched the empty stone. "She will return."
+
+"Frequently."
+
+"Almost certainly."
+
+Zephira rested both hands upon the spear haft. The idea assembled itself with comfortable speed: a compact hogtie rather than suspension, soft rope rather than bars, a bed rather than an abandoned shrine. Cordelia would not merely witness or improvise inside a technical framework. She would hold Zephira, reposition her and use the restrained body for her own comfort.
+
+The simplicity made heat move beneath Zephira's belt.
+
+"My rope," she said. "My gag. No jewelry. No fixed anchors—the entire point is that you can move me. Keep the hogtie compact but not severe enough to strain my shoulders while we sleep. You may touch me anywhere except my throat. If I need the session ended rather than merely want to complain, three hard taps against you."
+
+Cordelia listened without teasing. "And if your hands cannot reach me?"
+
+"Three deliberate sounds through the gag, repeated."
+
+"Duration?"
+
+"Until dawn or until I use the signal."
+
+"May I stimulate you?"
+
+Zephira had expected the question. Its directness still made her nipples tighten beneath her tunic.
+
+"Yes."
+
+Cordelia's eyes warmed. "Then I accept the pillow."
+
+The east guest room had been rebuilt for function rather than romance. Whitewashed stone enclosed a broad bed, a washstand, two hooks and one narrow window overlooking the cloister. A woven rug softened the floor. Zephira's weapons rested in a rack near the door, visible from the mattress and destined to be magnificently irrelevant.
+
+She bathed first.
+
+Warm water eased the remaining workshop ache from shoulders and thighs. She dried her thick golden-blonde hair and braided it loosely so it would not tangle beneath Cordelia. Clothing seemed unnecessary for a woman volunteering to become bedding. Zephira kept only a narrow dark-red wrap around her hips and two bronze bangles which made her wrists look decorated before the cuffs closed.
+
+Cordelia changed into a soft black nightdress whose thin straps left most of her golden-bronze shoulders bare. Without armor, staff or Beneficent jewelry, she looked almost ordinary until she smiled.
+
+Zephira spread pale rope over the blanket.
+
+She constructed the chest harness herself, using broad flat turns around ribs, shoulders and beneath her breasts. The rope framed without flattening, settling gently into the soft fullness Cordelia had evidently decided possessed practical value. A wide band circled above her knees. Ankle cuffs waited behind. Two padded wrist cuffs joined through the familiar ring at her lower back.
+
+The Appraising Glass hovered near the bed, offering a profile and elevated view while Zephira checked the arrangement. Her body remained long, athletic and visibly strong even in preparation: capable shoulders, firm waist, rounded hips and powerful thighs softened by lamplight. The rope did not contradict any of it. It merely prepared each useful limb to become decorative.
+
+"You are inspecting the pillow," Cordelia observed.
+
+"Quality control."
+
+"Excessively pretty quality control."
+
+Zephira's crooked smile appeared in three reflections. "You may continue providing objective assessments."
+
+She lay on her stomach and crossed her wrists behind her. Cordelia closed the cuffs only after Zephira placed both hands deliberately inside them. Rope enclosed her forearms without forcing the elbows together. Her knees folded. The ankle cuffs joined, then a short doubled line connected them to the wrist ring until her heels rested near the rise of her buttocks.
+
+The broad band above her knees prevented her thighs from splaying. It did not force them into painful contact. Her body gathered into one compact curve: breasts offered by the pull through her shoulders, hips rounded beneath the narrow wrap, bound feet lifted behind with arches flexed and toes pointing whenever she tested the line.
+
+Cordelia rolled her gently onto one side.
+
+Because nothing anchored Zephira to the bed, the whole hogtie moved as one manageable shape. Cordelia placed a pillow beneath her head, another along her ribs and adjusted the connecting line by half an inch until Zephira's shoulders settled without strain.
+
+"Comfortable?"
+
+"Yes."
+
+"Helpless?"
+
+Zephira pulled. Wrists and ankles rose together behind her. The knee band held. She could rock from hip toward stomach and could be rolled by another person, but no useful limb reached the mattress independently.
+
+"Annoyingly."
+
+"Good."
+
+Courteous Silence filled her mouth. Cordelia drew its padded straps beneath the braid and checked that Zephira could breathe before securing the final silver ring. The familiar loss of speech changed the room. Zephira could still express approval, protest and wounded dignity. She could not turn any of them into a clever sentence.
+
+Cordelia extinguished the lamp.
+
+Moonlight remained at the window. The Glass dimmed but continued showing silver-blue reflections until Cordelia turned its face politely toward the wall.
+
+Then she climbed into bed and collected Zephira.
+
+One arm passed beneath the pillow supporting Zephira's neck. Cordelia drew the bound Amazon against the full warmth of her body, chest to back, and fitted one thigh along the outside of Zephira's folded legs. Her cheek settled against Zephira's shoulder. The other arm circled the rope at her waist.
+
+For several breaths, she did exactly what had been advertised.
+
+Zephira became a pillow.
+
+Cordelia's body softened around her. Breath moved warmly against the back of Zephira's neck. One full breast rested against her shoulder blade, yielding whenever either woman shifted. The embracing arm kept Zephira close without adding restraint the rope had not already supplied.
+
+It was quiet, affectionate and more intimate than Zephira had prepared to find comfortable.
+
+She relaxed.
+
+Cordelia's hand moved from her waist to one breast.
+
+Zephira's eyes opened.
+
+The touch could have been accidental if Cordelia's fingers had not spread so thoughtfully around the rope-framed weight. Her palm lifted from beneath. Her thumb found the nipple already firm from cool air and traced it once.
+
+Zephira made a questioning sound around the gag.
+
+"Pillows require adjustment," Cordelia murmured against her shoulder.
+
+The thumb circled again.
+
+Zephira pulled at the hogtie. All four limbs answered behind her. The motion pressed her breast more fully into Cordelia's hand and pushed her hips backward against the thigh resting along them.
+
+"There," Cordelia said. "Better."
+
+Emily's face emerged from the ceiling.
+
+"Her nipple hardened before you touched it. The adjustment remains academically defensible but causally unnecessary."
+
+Zephira glared upward.
+
+Emily looked delighted. "Courteous Silence. Excellent choice."
+
+Cordelia continued circling the nipple. "We are sleeping."
+
+"Zephira's pulse suggests a transitional state."
+
+Zephira made two very clear sounds through the gag.
+
+"She says good night," Cordelia translated.
+
+Emily vanished.
+
+Cordelia waited until the ceiling became solid again. Then her hand resumed its journey.
+
+She explored without haste, as though the purpose truly were finding the most comfortable way to hold Zephira. Fingers crossed the rope beneath one breast, weighed it, moved to the other and lightly pinched the sensitized peak. Her palm traveled down the taut plane of Zephira's stomach. At the hip, the narrow wrap had ridden upward beneath the hogtie line.
+
+Cordelia hooked one finger beneath its edge.
+
+Zephira's breath stopped.
+
+"Still within the agreement?" Cordelia asked.
+
+Zephira nodded against the pillow.
+
+The silk moved downward.
+
+Cordelia's hand cupped the rounded hip exposed beneath it, then followed the curve inward. Her fingers traced the crease where thigh met body, paused close to gathering heat and moved away again.
+
+The denial was casual enough to feel almost rude.
+
+Zephira tried to shift after the retreat. The hogtie converted the effort into a small whole-body rock against Cordelia. Bound feet pointed. The line drew wrists and ankles fractionally closer behind her. Her breasts moved within their rope frame, one still enclosed by Cordelia's other arm.
+
+"The pillow is restless," Cordelia observed.
+
+Zephira denied this with a muffled sound.
+
+Emily appeared through the headboard. "The pillow has become visibly wet."
+
+Zephira nearly turned herself onto her stomach through indignation alone.
+
+Cordelia held her in place with one arm. "Emily."
+
+"Clinical observation."
+
+"Elsewhere."
+
+"Her toes are also curling."
+
+The feet in question flexed helplessly behind Zephira.
+
+"Thank you," Cordelia said.
+
+Emily disappeared through the mattress.
+
+This time Cordelia laughed. The sound traveled directly into Zephira's shoulder and made her own suppressed laughter shake the harness. Rope tightened beneath her breasts. Cordelia's hand, still resting at her hip, slid inward with the motion.
+
+Two fingers found the wet sensitivity between Zephira's thighs.
+
+The first stroke was light. Zephira's laughter vanished.
+
+Cordelia touched her with the same patient curiosity she had brought to the witnessed session, but the embrace changed everything. Zephira could not see the hand or anticipate its rhythm. She felt Cordelia's breath change when her body answered, felt the breast against her back and the leg keeping her folded body close. Every touch occurred inside a cuddle she could neither return with her arms nor escape.
+
+One finger traced the swollen center of her arousal and withdrew before pleasure could settle. The thumb at her breast pinched gently. Zephira's bound hands opened and closed against the small of her back.
+
+"You are an exceptionally responsive pillow," Cordelia whispered.
+
+Zephira attempted a threat.
+
+Courteous Silence made it sound needy.
+
+"That is not helping your case."
+
+Cordelia's fingers returned.
+
+The teasing continued in the unhurried rhythm of someone with the entire night available. Sometimes Cordelia stroked between Zephira's thighs until her hips began to move, then wandered up to massage a breast or trace the rope at her waist. Sometimes she merely held her, letting helpless anticipation become the sensation. Once she appeared to fall asleep for several minutes with her hand resting intimately against Zephira, only to move one fingertip the moment Zephira relaxed.
+
+Emily materialized at intervals to report matters Zephira considered private.
+
+"She has tested the wrist line seventeen times."
+
+"Sixteen," Cordelia said.
+
+Zephira pulled once out of principle.
+
+"Seventeen," Emily corrected.
+
+Later: "She presses backward whenever your hand approaches her hip."
+
+Zephira shook her head.
+
+"The denial would be stronger if her feet were visible," Emily suggested.
+
+Cordelia lifted the blanket from Zephira's bound ankles. Moonlight found high arches, tense soles and toes curling against empty air.
+
+"Agreed," she said.
+
+Zephira made a sound of profound betrayal.
+
+"She likes being displayed," Emily supplied.
+
+This was accurate enough to be intolerable.
+
+The ghost finally departed when Cordelia threatened to assign her inventory sorting. Silence returned around the bed.
+
+Without commentary, the scene grew softer and more dangerous. Cordelia drew Zephira close, kissed the warm skin behind her ear and let one hand settle firmly between her thighs. The next stroke did not retreat. Nor did the one after it.
+
+Pleasure rose through Zephira's compact body. The hogtie remained central to every response: wrists pulling against ankles, knee band denying the instinct to open her thighs, chest rope making each quickened breath press soft breasts into Cordelia's embrace. She could contribute only small movements of hips and the helpless flexing of her feet.
+
+Cordelia learned those movements quickly.
+
+Her fingers kept a steady pressure where Zephira needed it and her other hand closed around one breast, thumb rubbing the swollen nipple. Zephira felt release gather with none of the complicated denial of the jewelry. It came from hands—Cordelia's unexpectedly wicked, patient hands—and from being entirely unable to reach either of them.
+
+She cried out into the gag as orgasm tightened her.
+
+Her whole body drew against the hogtie. Heels lifted. Wrists strained. The broad knee band held her compact while pleasure moved through stomach, breasts and bound limbs. Cordelia's embrace kept her from rolling, not as an anchor but as a woman choosing to hold every tremor close.
+
+When it passed, Cordelia withdrew her hand and rested it warmly over Zephira's stomach.
+
+"Comfortable?" she whispered.
+
+Zephira nodded.
+
+"Useful?"
+
+After a pause intended to preserve some dignity, Zephira nodded again.
+
+Cordelia kissed her shoulder.
+
+This time she truly fell asleep.
+
+Zephira remained awake longer, held in rope and arms. Oversensitivity faded into warmth. The hogtie felt less like an ordeal than a shape Cordelia had accepted around her, compact enough to embrace completely. Every slow breath at her back moved them together. The hands which had proven so mischievous rested harmlessly now—one across her stomach, the other beneath her head.
+
+She had expected helplessness to feel dramatic when shared. Instead it could feel domestic.
+
+That discovery stayed with her until sleep arrived.
+
+At dawn, the release clasp opened automatically.
+
+The connecting line lengthened. Zephira's feet lowered; wrists separated; the knee band loosened. She removed Courteous Silence and rolled onto her back, flexing tingling hands.
+
+Cordelia opened one eye.
+
+"Good pillow," she said.
+
+Zephira considered several replies.
+
+"Naughty hands," she settled upon.
+
+Cordelia's expression remained serenely drowsy. "They became bored."
+
+Emily appeared above them wearing the satisfaction of a researcher whose hypothesis had survived the night. "Her body did not."
+
+Zephira threw the pillow.
+
+Emily let it pass through her and strike Cordelia.
+
+The morning began with appropriate consequences.
+
+## Chapter Twelve: Maximum Occupancy
+
+The cage occupied the cleanest cell in the eastern jail.
+
+Zephira noticed it immediately.
+
+Cordelia had offered to show her the restored Monastery after breakfast. They crossed the rebuilt cloister, Charsi's expanded forge, the barracks and a chapel whose new roof no longer leaked directly upon the altar. The lower passages smelled of limewash, lamp oil and old stone rather than blood. Storage filled most of the former jail. Grain sacks occupied one cell, spare bowstrings another, and an entire barred room had been given to Gheed's unsold shields because Kashya did not trust them near weather or recruits.
+
+The last cell remained empty except for a runed iron cage.
+
+It stood at the center of the floor upon a square base of dark stone. The bars rose no higher than Zephira's chest. Its interior was scarcely broad enough for one woman to kneel without touching metal at shoulder, hip and knee. A small door occupied one side. Rose-shaped channels spread from its lock across the base, scrubbed clean but still faintly pink where old magic remained in the stone.
+
+Zephira stopped at the threshold.
+
+"Storage?" she asked.
+
+Kashya walked behind them carrying an inventory slate. "Not currently."
+
+"Training?"
+
+"No."
+
+"Historical preservation?"
+
+The commander's mouth flattened. "Cordelia declined to let us dismantle it."
+
+Zephira looked at the Sorceress.
+
+Cordelia rested one hand upon a bar. "It has sentimental value."
+
+"You spent nearly three days inside it at the end of the Rose Sentence," Kashya said.
+
+"Sentiment is not always positive."
+
+Zephira walked around the cage. Her strong bare arms folded beneath her breasts; she had dressed for drills in a sleeveless tunic and fitted trousers, her thick blonde braid damp at the nape. The cage's proportions grew less reasonable from each angle.
+
+"You fit in there?"
+
+"Barely," Cordelia said. "My knees touched one side, my back another and every change of position became a negotiation with the bars."
+
+Zephira crouched beside the little door and looked through.
+
+"Two women could fit."
+
+Cordelia's eyebrows rose.
+
+"Not comfortably," Zephira added.
+
+"No."
+
+"Face-to-face."
+
+"Necessarily."
+
+"Knees around one another. Bodies pressed together."
+
+Cordelia considered the interior with increasing scholarly seriousness. "Every breath would rub one against the other."
+
+"There would be no room to pull away."
+
+Somewhere behind them, Kashya's stylus stopped moving.
+
+Zephira turned.
+
+The commander's expression remained composed. Her eyes did not. For one brief unguarded instant they had brightened at the picture: two capable women crowded into the cage, hands perhaps unavailable, every soft surface forced against another. Then discipline returned like a door closing.
+
+"The listed capacity is one," Kashya said.
+
+"Listed where?" Zephira asked.
+
+"It is apparent."
+
+"So is the unused space."
+
+"There is no unused space. That is the concern."
+
+Emily rose through the dark base inside the cage. She had accompanied the tour invisibly, which allowed her to sit between bars without acknowledging them. "I recommend empirical testing."
+
+Cordelia looked at her.
+
+Emily smiled. "With matching jewelry."
+
+Zephira's gaze moved to Cordelia before she could prevent it.
+
+Cordelia noticed.
+
+"Emily recommends testing the capacity," she told Kashya.
+
+The commander's eyes went from Zephira to the cage and then to Cordelia's entirely bare wrists.
+
+"Does she," Kashya said.
+
+"With magical controls."
+
+"Of course."
+
+Zephira rose. "Would the jail be occupied tonight?"
+
+Kashya consulted the inventory slate despite knowing every line upon it. "No patrol is assigned below the eastern stairs after the ninth bell."
+
+"That was not my question."
+
+"It is the answer available."
+
+Kashya resumed walking. At the door she paused without looking back.
+
+"Do not damage the cage," she said.
+
+The stylus moved again only after she reached the passage.
+
+Zephira waited until the footsteps faded. "She wants to know."
+
+"She wants the option of imagining," Cordelia said. "That is not the same thing."
+
+"I know."
+
+Emily pressed her face between two bars. "I also want to know."
+
+"Nobody was confused about you," Zephira said.
+
+They returned after the ninth bell.
+
+The eastern stairs closed behind them. Cordelia lit three wall lamps and placed water, towels and two robes outside the cell. Zephira tested the cage door, each bar and the dark base. Nothing shifted. The interior had been padded with a thin fitted mat during the restoration, enough to protect knees without making the space generous.
+
+Neither woman brought rope.
+
+Cordelia carried only the smooth silver memory from which she summoned Beneficent replicas. It lay in her palm like a drop of moonlight, answering her rather than Emily. The distinction mattered to Zephira. Emily could propose the rules, but Cordelia would choose whether to call the jewelry into being and place its magic upon them.
+
+"No battle circuit," Cordelia said. "No lethal trigger, stopped-time offer or Cataclysm. The restraint, sensitivity, attire and stimulation remain. The sets dismiss automatically when the cage term ends."
+
+Zephira removed her tunic. "All five pieces?"
+
+"Matching means matching."
+
+They undressed beneath the lamps until each retained only a simple wrap—red upon Zephira, black upon Cordelia. The contrast pleased Emily so visibly that neither living woman acknowledged it.
+
+Cordelia summoned Zephira's set first.
+
+Silver formed around both nipples, joined by a delicate chain. Bracelets appeared at her wrists; ankle chains circled above her heels. The clitoral ring fitted itself with intimate precision, drawing an involuntary tightening through her stomach. Last came the choker, close around her throat and warm with the complete circuit.
+
+The red wrap changed at once. Silk divided into narrow straps, tiny cups and high-cut bands which framed Zephira's full breasts, firm waist and rounded hips while concealing almost nothing the cage would shortly press against Cordelia.
+
+"You look pleased," Cordelia observed.
+
+"You summoned it well."
+
+"A demanding craft."
+
+Cordelia called the second set upon herself.
+
+Matching silver appeared against golden-bronze skin. Her black wrap surrendered even more dramatically, becoming stockings without shoes, a narrow arrangement over hips and two inadequate pieces around fuller breasts. The jewelry suited her with the unfair familiarity of something derived from her own legend.
+
+Zephira stared.
+
+Cordelia's mouth curved. "Cold?"
+
+"No."
+
+"Your nipples—"
+
+"The jewelry."
+
+"Naturally."
+
+Emily floated between them. "I have an extension proposal."
+
+Both women looked at her.
+
+"A two-hour initial term," she said. "Every orgasm detected by either complete set adds thirty minutes to the cage timer."
+
+Silence entered the cell.
+
+Zephira looked through the bars at the small pink display above the lock. "Each orgasm."
+
+"Each wearer, each event. Simultaneous releases therefore add one hour."
+
+"That seems administratively vindictive," Cordelia said.
+
+"Thank you."
+
+Zephira stepped closer to the cage. Two hours sounded manageable. The jewelry had begun only a faint alternating hum, more reminder than assault. They would be cramped, not mechanically stimulated by anything else. They were adults with considerable discipline.
+
+She pictured Cordelia pressed against her inside the bars.
+
+"I agree," Zephira said.
+
+Cordelia looked at her for a long moment, then at the cage. "So do I."
+
+Emily touched the timer. Rose light arranged itself into **2:00**.
+
+"The rule is set," she announced. "I cannot shorten, lengthen or remove it after the door closes. I may provide commentary because scholarship must survive adversity."
+
+"Commentary was not discussed," Zephira said.
+
+"It was historically implied."
+
+Cordelia entered first.
+
+She knelt in the center, turned and immediately occupied most of the available room. Zephira followed backward so they could arrange their legs before facing one another. One knee passed outside Cordelia's hip, the other between her thighs. Cordelia mirrored the pattern around her. Their lower legs folded along opposite sides of the cage, bare feet overlapping near the rear bars.
+
+Then Zephira turned.
+
+The calculation became contact.
+
+Her breasts pressed against Cordelia's fuller curves before she completed the movement. Their stomachs met. One of Cordelia's thighs settled intimately between Zephira's while Zephira's crossed beneath the other woman. Faces stopped inches apart. The bars accepted shoulders, hips and outer knees, leaving nowhere else for either body to go.
+
+"Maximum occupancy," Zephira said.
+
+"Optimistic occupancy," Cordelia corrected.
+
+Emily closed the door.
+
+The bracelets activated.
+
+Zephira's wrists drew behind her and joined at the small of her back. Cordelia's did the same. Neither woman could use a hand to create distance, adjust a strap or protect any part of herself. Their shoulders opened, pressing breasts more fully together. The cage timer began to descend.
+
+**1:59.**
+
+The clitoral rings started vibrating.
+
+Both women inhaled.
+
+The shared breath moved their breasts against one another, silver rings and erect nipples dragging through narrow scraps of silk. Zephira tried to lean back. The bars stopped her after less than an inch. Cordelia adjusted in the opposite direction, and the thigh between Zephira's legs pressed firmly upward.
+
+They became very still.
+
+"Two hours," Zephira said.
+
+"Entirely reasonable."
+
+The timer showed **1:58**.
+
+Emily folded herself cross-legged in the air outside. "Both sets report rising arousal. Zephira's is presently increasing faster."
+
+"Her thigh is between my legs."
+
+"Your thigh is also between hers."
+
+Cordelia shifted experimentally.
+
+The movement rubbed Zephira against her leg and returned Zephira's thigh against Cordelia. Both sets brightened. Their mouths opened upon matching breaths.
+
+"Do not do that," Zephira said.
+
+"I was finding balance."
+
+"Find it elsewhere."
+
+"There is no elsewhere."
+
+That was the cage's entire argument.
+
+Every practical necessity became intimate. Sitting taller pressed their nipples together. Slouching pushed hips forward and increased the pressure of interlaced thighs. Turning the head put lips near throat or ear. Trying to rest one cheek against the bars forced the other woman's face into the curve of a shoulder.
+
+They began by treating stillness as strategy.
+
+Cordelia looked into Zephira's sea-green eyes from too close for either expression to remain private. Zephira watched a pulse move at the base of Cordelia's throat and felt the answering rhythm where their chests met. The sets alternated between nipples and clitoral rings in quiet patterns, never strong enough alone to decide anything and perfectly designed to make the unavoidable contact matter.
+
+At **1:41**, Zephira's left foot cramped.
+
+She tried to straighten it beneath Cordelia's folded leg. Her toes slid along the other woman's calf. Cordelia instinctively lifted one knee, which drove her thigh higher between Zephira's legs. Zephira's hips jerked.
+
+Cordelia gasped as the answering motion pressed Zephira's thigh against her.
+
+The timer continued counting.
+
+"We need to coordinate," Cordelia said.
+
+"We are coordinated. Poorly."
+
+They tried again. Zephira warned before moving her foot. Cordelia shifted left. Their breasts dragged together; nipples caught briefly against silver chains. Both women stopped, breathing faster than the adjustment justified.
+
+Emily leaned toward the timer. "This is promising."
+
+"For whom?" Cordelia asked.
+
+"Time."
+
+The first orgasm arrived at **1:17**.
+
+Zephira had spent the preceding minutes pretending it was not approaching. The set knew better. Each constrained shift of her hips pushed sensitive flesh along Cordelia's thigh. Each breath moved swollen nipples against Cordelia's. Her hands remained locked behind her, unable to alter either source of stimulation. When she tried to retreat, the cage returned her forward.
+
+Cordelia saw the change.
+
+"Close?" she asked quietly.
+
+"No."
+
+The lie had nowhere to travel. Cordelia could feel the tension gathering through Zephira's whole body, the tightening thigh beneath her and the increasingly desperate way Zephira pressed against the only pressure available.
+
+"Very close," Cordelia said.
+
+Zephira's face heated. "Do not look pleased."
+
+"I am trapped face-to-face with the evidence."
+
+The clitoral ring increased its pulse.
+
+Zephira lost the argument.
+
+Release moved through her in a deep, restrained wave. Her bound hands clenched. Thighs tightened around Cordelia's leg. Her breasts pressed hard against the other woman's as her back attempted an arch the bars would not permit. The cage held them together through every contraction.
+
+Pink light flashed outside.
+
+**+0:30**
+
+The timer changed from **1:16** to **1:46**.
+
+Emily applauded.
+
+Zephira sagged against Cordelia, cheek landing upon her shoulder. "Unnecessary."
+
+"Contractually precise," Emily said.
+
+Cordelia kissed Zephira's warm temple. The gesture might have been comforting if her thigh had not remained exactly where it was.
+
+"You are enjoying this," Zephira murmured.
+
+"Immensely."
+
+"Your turn."
+
+Cordelia drew back far enough to look at her. "That sounds vindictive."
+
+"Administrative balance."
+
+With no hands, Zephira used what the cage had given her. She shifted her thigh upward beneath Cordelia and rolled her hips in the tiny space available. Cordelia's composure altered immediately. The set transformed that single movement into tension through ankle chains, nipple rings and the vibrating silver between her legs.
+
+"That is not stillness," Cordelia said.
+
+"I was finding balance."
+
+Emily smiled. "They are learning one another's dialects."
+
+Cordelia lasted eleven minutes.
+
+Her orgasm announced itself first in the hand Zephira could not see, fingers tightening behind her back. Then Cordelia's eyes closed, full mouth parting as her body pressed forward. Her breasts compressed against Zephira's. The thigh between Zephira's legs tightened involuntarily, providing a dangerous echo while release moved through Cordelia.
+
+**+0:30**
+
+The timer climbed again.
+
+"Balanced," Zephira said against her mouth.
+
+Cordelia kissed her.
+
+The kiss began as punishment and lost its administrative character almost immediately. Their faces had remained too close for an hour, breath crossing, mouths repeatedly avoiding contact. Now Cordelia's lips opened over Zephira's, warm and unhurried. Zephira answered with the casual greed of a woman whose hands could contribute nothing and whose entire available body was already pressed into the exchange.
+
+Their hips moved.
+
+The timer noticed the consequences twenty-three minutes later.
+
+After that, strategy deteriorated.
+
+They attempted cooperation first. Both agreed to remain still for ten minutes. At minute four, Cordelia's nipple ring pulsed against Zephira's and made her inhale sharply. The breath created friction. Zephira laughed. Laughter moved both bodies. The agreement ended without formal notice.
+
+They attempted separation. The cage allowed half an inch before bars met shoulders and hips. The space merely let cool air reach heated skin, making the next accidental contact worse.
+
+They attempted to face opposite directions. This required an impossible exchange of knees and resulted in Zephira briefly sitting across Cordelia's lap with both hands bound behind them. Emily called the configuration innovative. They returned face-to-face after adding another thirty minutes.
+
+Near midnight, they attempted synchronization.
+
+"If we come together," Zephira reasoned breathlessly, "the timer may consider it one event."
+
+"Emily explicitly said each wearer."
+
+"Emily says many things. Some must be wrong."
+
+"A compelling statistical argument."
+
+They found a shared rhythm using thighs, hips and the pressure of their bodies. Neither could control it independently. Zephira's movement stimulated Cordelia while stealing leverage from herself; Cordelia's answer returned it. Their breasts moved together inside matching silver. Foreheads met. Breath shortened.
+
+The synchronized release was worth the experiment.
+
+Pleasure gathered in both women until the distinctions blurred—whose thigh moved, whose mouth made the broken sound, whose body first tightened against the bars. Zephira felt Cordelia come through every place they touched, and her own orgasm followed or preceded it by too little time to matter.
+
+The timer flashed twice.
+
+**+1:00**
+
+Cordelia began laughing against Zephira's shoulder.
+
+Zephira joined her because nothing else remained dignified.
+
+"I was very clear," Emily said.
+
+"You were intolerable," Cordelia replied.
+
+"Clarity often is."
+
+The night became less a contest than a long education.
+
+They learned which movements each woman could endure and which destroyed composure immediately. Cordelia discovered that a slow flex of her thigh affected Zephira more than frantic pressure, especially when accompanied by a quiet description of how helplessly her body answered. Zephira learned that Cordelia's calm speech failed whenever warm lips closed around one sensitive nipple and the cage denied her room to retreat.
+
+They learned how sweat changed friction, how matching chains caught and slid apart, how bound hands altered every embrace into something accomplished through shoulders, mouths and legs. They learned when to tease, when to hold still and when stillness itself became unbearable.
+
+During the longer pauses, they talked.
+
+Cordelia told Zephira about her first year among the Zann Esu, when she had frozen an instructor's sleeves together and blamed atmospheric conditions. Zephira confessed that the bow she claimed to have won in a tournament had actually been acquired in a drinking contest conducted after the tournament. They compared terrible lovers, excellent wine and the relative honesty of demons and merchants.
+
+The intimacy was not romantic destiny. Neither woman mistook shared pleasure for ownership of the life outside the cage. It was something warmer and less burdensome: friendship with every physical pretense removed, two women learning one another because there was literally nowhere else to look.
+
+Each new orgasm extended the lesson.
+
+At some point the timer passed three hours remaining despite the night being visibly older than that. Later it fell below two, rose again and provoked no surprise. Emily stopped announcing every extension and began keeping notes.
+
+By the small hours, Zephira's thighs trembled from kneeling. Cordelia's shoulders carried the heavy ache of bound wrists and insufficient room. Both sets had made nipples swollen and every intimate surface acutely sensitive. Desire remained, but fatigue finally began negotiating where discipline had failed.
+
+"We need thirty quiet minutes," Cordelia said.
+
+The display showed **0:27**.
+
+"We need twenty-seven."
+
+"If neither of us adds more."
+
+Zephira rested her forehead against Cordelia's. "Do not move your thigh."
+
+"It has nowhere to go."
+
+"Do not breathe excessively."
+
+"Demanding."
+
+They settled as carefully as the cage allowed. Cordelia turned her face so Zephira could rest against her shoulder. Zephira's cheek lay over the warm curve of one breast. Their legs remained intertwined, but no one pursued the pressure. Bound hands relaxed. Matching jewelry continued its low pulses and received no cooperation.
+
+The timer reached **0:12**.
+
+Emily floated nearby in unusual silence.
+
+At **0:06**, Cordelia's ankle chain sent a pulse through both pointed feet. Her toes curled along Zephira's sole.
+
+Zephira shuddered.
+
+"Don't," Cordelia whispered.
+
+"Your foot."
+
+"Historic atmospheric conditions."
+
+Zephira laughed once, dangerously. The movement rubbed their breasts together.
+
+The display held at **0:05** while both women froze.
+
+Then it continued.
+
+Five minutes became one. One became ten seconds.
+
+The cage opened shortly after sunrise.
+
+Bracelets released their wrists. The matching sets dissolved into silver light, dismissed by the completion Cordelia had placed within them when she summoned them. Neither woman immediately attempted to leave. Their legs had become too thoroughly arranged around one another, and the first available space felt less urgent than expected.
+
+Emily inspected the final record. "Nine hours and forty-three minutes."
+
+Zephira lifted her head from Cordelia's shoulder. "That cannot be correct."
+
+"The base term was two hours. Extensions totaled seven hours and thirty minutes. The remaining thirteen minutes are attributable to a timer pause during your failed rotational experiment."
+
+Cordelia looked at Zephira. "We were very thorough."
+
+"Your thigh was provocative."
+
+"Your entire body was provocative."
+
+"Matching sets," Emily said cheerfully. "A successful recommendation."
+
+Footsteps sounded upon the eastern stair.
+
+Kashya appeared at the cell door carrying two cups of tea and the expression of a commander who had predicted exactly enough to be irritated by the details. Her gaze moved across the open cage, the two exhausted women still kneeling face-to-face and the pink timer record glowing above them.
+
+Her eyes brightened once more.
+
+Then she placed the tea outside the bars.
+
+"The listed capacity remains one," she said.
+
+Zephira looked at Cordelia.
+
+Cordelia looked at Zephira.
+
+"Empirically disputed," they answered together.
+
+Kashya departed before her mouth could betray her.
+
+It took Cordelia and Zephira another five minutes to separate their legs and reach the tea.
+
+Neither considered the night wasted.
+
+## Chapter Thirteen: The Full Report
+
+At breakfast, Zephira discovered that her body had been keeping a more accurate record of the visit than she had. Three days as cargo, six hours of beautifully distributed weight, one night as Cordelia's pillow and nearly ten hours in the cage remained separately legible in shoulders, thighs, wrists and several more intimate places.
+
+She approached the campfire with the measured stride of a woman refusing to acknowledge her inner thighs. Cordelia walked beside her with equal dignity and marginally greater success. Both had bathed, dressed and restored their hair to forms acceptable in daylight. Zephira wore leather trousers, a sleeveless tunic and her thick golden-blonde braid down her back. Cordelia had chosen a blue traveling robe whose generous sleeves concealed the temporary bands around her wrists. Neither mentioned that Kashya's tea had been excellent.
 
 Nothing concealed how carefully they sat.
 
-Charsi looked up from a bowl of porridge. "Mobile by breakfast."
+Charsi looked up from a bowl of porridge. "Mobile again."
 
-"As promised," Zephira said.
+"Repeatedly," Zephira said.
 
 She lowered herself onto the bench.
 
@@ -982,7 +2168,7 @@ Cordelia's eyes narrowed.
 
 "I had inferred her argument."
 
-The bounty began an hour later beneath a clean autumn sky. Zephira went ahead of the Rogue patrol, moving through wet grass with a spear across her shoulders and a short bow at her back. The previous night's restraint lived in her muscles as a warm complaint, but motion gradually worked it loose. By the time the ruined chapel appeared between yellowing trees, her stride had recovered its ordinary confidence.
+The bounty began an hour later beneath a clean autumn sky. Zephira went ahead of the Rogue patrol, moving through wet grass with a spear across her shoulders and a short bow at her back. The accumulated restraints of the visit lived in her muscles as a warm complaint, but motion gradually worked them loose. By the time the ruined chapel appeared between yellowing trees, her stride had recovered its ordinary confidence.
 
 This was the body she knew without mirrors: strong lungs, sure feet, hands comfortable around a weapon. She could read ground at a glance and judge the direction of an unseen archer from the angle at which birds left a tree. The softness visible at the surface of that body had never contradicted its capability, and chosen helplessness had replaced none of it. Pale rope impressions beneath her tunic belonged to the same whole.
 
@@ -1143,6 +2329,8 @@ Cordelia arrived through the waypoint carrying a green military pick and an expr
 Their laughter moved easily around the fire. Zephira sat with one boot upon the bench, drinking spiced wine and listening to women who had helped save Sanctuary discuss whether unique weapons could reproduce. Her call-charm rested beneath her tunic, a small smooth disk against her sternum. She wore it every day now. Most days it did nothing.
 
 She continued using her collection alone when solitude suited the design. Other evenings she unrolled diagrams beside Cordelia's Grail ledger and proposed increasingly unreasonable revisions to the paired frame. Cordelia accepted some, rejected others and drew a firm line through every version in which Emily had written *inversion*.
+
+## Chapter Fourteen: The Next Discovery
 
 They traveled to Lut Gholein at month's end because Elzix had promised Zephira a rematch and Drognan had sent Cordelia a note concerning an unidentified Horadric seal. Kashya accompanied the caravan as far as the Dry Hills waypoint to inspect new trade arrangements. Charsi came because Lut Gholein sold metal at half Gheed's price and because Atma had promised her a room with a real bath.
 

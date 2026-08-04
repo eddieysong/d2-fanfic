@@ -285,7 +285,7 @@ async function splitZephiraNovel() {
             .replace(/^-|-$/g, "")}`,
           title: chapterMatch[1],
           shortTitle,
-          eyebrow: `Knots of Her Own · ${String(chapterNumber).padStart(2, "0")} of 10`,
+          eyebrow: `Knots of Her Own · ${String(chapterNumber).padStart(2, "0")} of 14`,
           collectionId: "zephira",
           sourceFile,
           lines: [],
