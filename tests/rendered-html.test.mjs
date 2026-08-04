@@ -24,9 +24,10 @@ test("renders the chronological archive index", async () => {
   assert.match(html, /The Core Journey/);
   assert.match(html, /After the Worldstone/);
   assert.match(html, /The Fourth Discipline/);
+  assert.match(html, /Knots of Her Own/);
   assert.match(html, /The Beneficent Archives/);
   assert.match(html, /View the gallery/);
-  assert.match(html, /<strong>50<\/strong>\s*entries/);
+  assert.match(html, /<strong>59<\/strong>\s*entries/);
   assert.doesNotMatch(html, /codex-preview|SkeletonPreview|Your site is taking shape/);
 });
 
@@ -80,6 +81,24 @@ test("renders the Grail adventures in chronological order", async () => {
   assert.ok(firstGrail > -1);
   assert.ok(lastGrail > firstGrail);
   assert.ok(archives > lastGrail);
+});
+
+test("renders Zephira's complete arc after the Grail adventures", async () => {
+  const response = await render("/read/zephira-01-the-first-lock");
+  assert.equal(response.status, 200);
+  const html = await response.text();
+  assert.match(html, /Chapter One: The First Lock/);
+  assert.match(html, /Knots of Her Own/);
+
+  const generated = await readFile(new URL("../lib/library.generated.ts", import.meta.url), "utf8");
+  const lastGrail = generated.indexOf("grail-13-the-mercenary-experiment");
+  const firstZephira = generated.indexOf("zephira-01-the-first-lock");
+  const lastZephira = generated.indexOf("zephira-10-the-next-discovery");
+  const archives = generated.indexOf("35-the-intended-effects");
+  assert.ok(firstZephira > lastGrail);
+  assert.ok(lastZephira > firstZephira);
+  assert.ok(archives > lastZephira);
+  assert.doesNotMatch(generated, /The Unreachable Key/);
 });
 
 test("keeps multi-image scenes in narrative order", async () => {
