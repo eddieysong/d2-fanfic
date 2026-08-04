@@ -8,7 +8,7 @@ Those were details. A commander remembered details.
 
 What returned to Kashya when the Monastery had gone quiet was the moment the details ceased to matter.
 
-After thirty days beneath the Rose Sentence, Cordelia had come apart around Kashya's hand. Her back had arched from the cot. Her bound posture had offered no leverage against the pleasure taking her, and for several extraordinary seconds the sorceress had possessed neither wit nor dignity nor any desire to recover them. Pink light had poured over flushed skin while powerful contractions closed around Kashya's fingers. Cordelia had looked ruined, radiant and freer than Kashya had ever seen her.
+After thirty days beneath the Rose Sentence, every orgasm it had stolen from Cordelia had returned around Kashya's hand. Her back had arched from the cot. Her bound posture had offered no leverage against pleasure neither woman had known was coming, and for an impossible span the sorceress had possessed neither wit nor dignity nor any desire to recover them. Pink light had poured over flushed skin while wave after wave of powerful contractions closed around Kashya's fingers. Cordelia had looked ruined, radiant and freer than Kashya had ever seen her. She had needed help walking for days afterward.
 
 Kashya had spent months trying to determine why the memory refused to fade.
 

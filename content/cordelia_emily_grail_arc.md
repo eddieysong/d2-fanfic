@@ -1,4 +1,4 @@
-# The Fifth Discipline
+# The Fourth Discipline
 
 *A post-Baal Grail adventure in thirteen chapters.*
 
@@ -2733,9 +2733,9 @@ Cordelia recognized the expression. "No."
 
 Emily proposed the Rose Sentence.
 
-Not the month-long sentence Cordelia had once endured to avoid sacrificing a Cham rune. This version would remain active for twenty-one days and then continue until she entered Uber Tristram. Orgasm would be impossible throughout. Every denied edge would accumulate sexual tension; the complete jewelry set would capture that tension instead of allowing it to dissipate. Emily would arm Beneficent Cataclysm only after the final portal opened.
+Not the month-long sentence Cordelia had once endured to avoid sacrificing a Cham rune. This version would remain active for forty days. Cordelia would enter Uber Tristram shortly before the term expired and deliberately open the Rose there; missing that window would make it release its accumulated pleasure wherever she happened to be. Her body would still pass through orgasm, but the Rose would mute the pleasure at its decisive instant and conserve it. Each physical climax would reset the immediate pressure while leaving her underlying arousal and heightened sensitivity intact. The complete jewelry set would receive the Rose's accumulated reserve only when Cordelia finally released it, allowing every stolen orgasm to become part of one Cataclysm. Emily would arm the spell after the final portal opened.
 
-"Twenty-one days," Kashya repeated.
+"Forty days," Kashya repeated.
 
 "During which the reserve must be cultivated as aggressively as possible," Emily said.
 
@@ -2751,7 +2751,7 @@ Cordelia considered three Prime Evils, their regeneration and the Hellfire Torch
 
 The answer changed the air around the table. Charsi's curiosity became responsibility. Atma's expression softened. Anya looked from Cordelia to the organ jars as if measuring the distance between desire and necessity. Kashya alone asked the question no one else had yet voiced.
 
-"Three weeks of this may alter how we behave with one another afterward."
+"Forty days of this may alter how we behave with one another afterward."
 
 Cordelia appreciated her for saying it. Friendship had allowed a few accidents, private experiments and charged silences to remain light. A schedule of deliberate denial was different. They would see her beg. They would learn exactly how to touch her and exactly what she became when release was withheld. Cordelia would remember who enjoyed which part.
 
@@ -2761,7 +2761,7 @@ Charsi nodded. Anya did the same.
 
 Kashya waited for Cordelia.
 
-Cordelia imagined twenty-one nights of their hands, mouths, feet and attention. Fear stirred beneath the arousal—not fear of harm, but of being known too thoroughly to retreat into dignity later. The Hellfire Torch supplied an admirable excuse. It was not the whole reason she accepted.
+Cordelia imagined forty nights of their hands, mouths, feet and attention. She remembered the first Rose opening at sunrise and thirty days of stolen pleasure returning around Kashya's hand with enough force to make stairs impossible afterward. Fear stirred beneath the arousal—not fear of harm, but of the final release and of being known too thoroughly to retreat into dignity later. The Hellfire Torch supplied an admirable excuse. It was not the whole reason she accepted.
 
 "Friends before," she said. "Friends after. During, you do what I asked and do not become gentle merely because I complain convincingly."
 
@@ -2769,7 +2769,7 @@ Kashya's gaze held hers. "Understood."
 
 A pink rune unfolded low upon her abdomen.
 
-Its central rose opened just above the dark hair of her sex, petals luminous against warm bronze skin. Thornless vines curved over both hips and joined the clitoral ring. The choker closed the circuit. Three weeks began.
+Its central rose opened just above the dark hair of her sex, petals luminous against warm bronze skin. Thornless vines curved over both hips and joined the clitoral ring. The choker closed the circuit. Forty days began.
 
 During the first week, helping still resembled an organized experiment.
 
@@ -2783,13 +2783,13 @@ Every downward press drew both nipples outward.
 
 Cordelia knelt in front of her, thighs spread by the bench supports and luminous rose visible between them. Charsi maintained an earnest conversation about reinforcement stitching while her boot controlled the chain and one warm hand stroked Cordelia's clitoris around the ring.
 
-The first edge rose quickly. Charsi felt Cordelia tighten beneath her fingers, released the pedal and withdrew everything at once.
+The first climax rose quickly. Charsi felt Cordelia tighten beneath her fingers and nearly released the pedal from startled instinct. Cordelia caught her eye and shook her head.
 
 The Rose Sentence blazed.
 
-Pleasure remained without completion. The aborted contractions became pink light stored beneath the jewelry.
+Cordelia's body completed the response. Her hips lifted, her vagina contracted and her bound hands strained behind the bench. Charsi kept one hand moving around the clitoral ring and her boot pressed steadily upon the pedal while the Rose muted the pleasure and drew its brightness into the inscription.
 
-The sensation was crueler than Cordelia remembered. Her body began the first involuntary pull toward orgasm and found the final movement missing, stolen so cleanly that pleasure remained suspended like breath held too long. The rose drank every unfinished pulse. Need collapsed inward instead of fading, leaving her clitoris harder beneath the ring and both nipples throbbing from the chain's sudden stillness.
+The sensation was crueler than Cordelia remembered. Her body passed through every resolving contraction, but the pleasure arrived as a muffled shadow and vanished into pink light. The immediate pressure receded. Satisfaction did not replace it. The Rose preserved the heat beneath her skin, leaving her clitoris newly sensitive beneath the ring and both nipples throbbing while Charsi continued to work them.
 
 She made a sound she would later deny.
 
@@ -2807,7 +2807,7 @@ Charsi looked at the trembling woman bound to her bench. "Only one?"
 
 They reached seven before midnight.
 
-By the seventh, Charsi no longer needed Emily to count. She recognized the hitch in Cordelia's breath, the helpless inward turn of her knees and the way her bound hands opened just before release. She stopped with exquisite accuracy. The Rose took another orgasm and left Cordelia hanging forward against the bench, breasts swollen within the cups, tears of frustration bright at the corners of her eyes.
+By the seventh, Charsi no longer needed Emily to count. She recognized the hitch in Cordelia's breath, the helpless inward turn of her knees and the way her bound hands opened just before the physical climax began. She continued with exquisite accuracy through every muted contraction. The Rose took another orgasm and left Cordelia hanging forward against the bench, body briefly softened, desire untouched and tears of frustration bright at the corners of her eyes.
 
 Charsi unbound her carefully, rubbed circulation into both wrists and held a cup of water to her mouth.
 
@@ -2819,11 +2819,11 @@ Cordelia drank, then kissed the inside of Charsi's wrist before either woman cou
 
 "Tomorrow," she said, "hate it eight times."
 
-Atma preferred slower work. She reclined Cordelia upon clean sheets, secured both hands above her head and used mouth, fingers and occasionally oiled feet to build one prolonged approach after another. Her calm survived every plea. When Cordelia begged her to finish, Atma kissed the inside of one shaking thigh and reminded her that finishing was precisely what none of them could provide.
+Atma preferred slower work. She reclined Cordelia upon clean sheets, secured both hands above her head and used mouth, fingers and occasionally oiled feet to build one prolonged approach after another. Her calm survived every plea. When Cordelia begged for satisfaction, Atma kissed the inside of one shaking thigh and reminded her that the Rose—not any failure of attention—was withholding it.
 
-The denial made ordinary conversation indecent. Atma discussed caravan repairs while her tongue circled the clitoral jewel. She asked whether Cordelia wanted more wine while two fingers moved inside her vagina and stopped whenever muscles began contracting around them. Each edge ended with the Rose drawing unfinished pleasure into its petals.
+The denial made ordinary conversation indecent. Atma discussed caravan repairs while her tongue circled the clitoral jewel. She asked whether Cordelia wanted more wine while two fingers moved inside her vagina and continued without interruption as the muscles contracted around them. Each physical climax ended with the pleasure flowing out of Cordelia and into another luminous petal.
 
-Atma understood that denial was not merely the absence of orgasm. She made Cordelia feel cared for throughout the refusal. Between edges she massaged trembling thighs, kissed the marks left by restraint and let Cordelia rest with her cheek against the innkeeper's stomach. Then she would ask whether Cordelia was ready and begin again, calm enough that the answer could be honest.
+Atma understood that denial was not merely the absence of orgasm. She made Cordelia feel cared for throughout each theft. Between muted climaxes she massaged trembling thighs, kissed the marks left by restraint and let Cordelia rest with her cheek against the innkeeper's stomach. Then she would ask whether Cordelia was ready and begin again, calm enough that the answer could be honest.
 
 On the fourth approach, Atma settled astride Cordelia's face while her fingers continued working below. Her robe remained gathered around her waist. Cordelia tasted the arousal Atma had concealed beneath steady conversation and understood that assistance was not emotionally one-sided. Atma moved slowly against her mouth, allowing herself pleasure while two fingers curled inside Cordelia and a thumb stroked the ring.
 
@@ -2841,7 +2841,7 @@ Cordelia spent one afternoon inside the cleaned jail, wrists cuffed behind her a
 
 Cordelia learned to ask without it.
 
-Kashya's foot pressed the clitoral ring through wet folds while the crop marked strong thighs and rounded buttocks. She brought Cordelia to the sealed threshold, held pressure until need became almost painful and withdrew at the exact instant release should have begun.
+Kashya's foot pressed the clitoral ring through wet folds while the crop marked strong thighs and rounded buttocks. She brought Cordelia through the sealed threshold and kept the stocking seam grinding across silver as Cordelia's body climaxed beneath her. The Rose stole the pleasure; Kashya did not grant even the symbolic mercy of withdrawing.
 
 The commander's face remained composed. Her breathing did not.
 
@@ -2851,7 +2851,7 @@ Kashya made her count the crop marks. When numbers became ragged, she began agai
 
 "You want this," Cordelia said, a trace of challenge surviving through need.
 
-The foot stopped upon her clitoris.
+The foot pressed more firmly upon her clitoris.
 
 "Your task is not to assess me."
 
@@ -2859,7 +2859,7 @@ The foot stopped upon her clitoris.
 
 Kashya pressed down until the jewel drove a cry from her. "Neither was that."
 
-The next edge stripped triumph from Cordelia's smile. Kashya held her there for several breaths, stocking seam trapped beneath the ring, then stepped away and left her wet, cuffed and shaking inside the cage.
+The next muted climax stripped triumph from Cordelia's smile. Kashya held the stocking seam beneath the ring through every contraction, then continued until Cordelia's briefly reset body began responding again. Only after the Rose had stolen another did she step away and leave Cordelia wet, cuffed and shaking inside the cage.
 
 Only when Cordelia asked without teasing did Kashya return. The commander's satisfaction showed in the controlled set of her shoulders and the faint shine upon her lower lip where she had bitten it. Cordelia found the evidence comforting. She was not performing alone. Kashya, too, was discovering a self she preferred to keep beneath uniform and command.
 
@@ -2867,7 +2867,7 @@ Anya used magic.
 
 Her tincture heightened nipples, clitoris, vaginal entrance and sensitive soles while numbing the soreness three consecutive days of help had created. She suspended Cordelia in silk with her hands folded tightly behind her, breasts hanging beneath translucent support and bare feet pointed outward. Cups teased both nipples. A Mutable Instrument filled her slowly while Anya's brush painted fresh sensitivity between her thighs.
 
-Cordelia reached the edge from several directions at once. The Rose refused all of them.
+Cordelia reached climax from several directions at once. The Rose muted all of them into one pale physical shudder.
 
 Anya watched the refusal travel through her. Silk tightened as Cordelia arched; breasts swung within translucent support; bare feet pointed hard enough for toes to cramp around empty air. The Mutable Instrument maintained fullness without movement, letting the tincture turn stillness into torment. Every heartbeat pressed sensitive vaginal walls against its surface. Every sway dragged swollen nipples beneath the cups.
 
@@ -2879,7 +2879,7 @@ Anya's gentleness did not mean mercy. Reassured, she used the brush again. Cool 
 
 The movement made every prepared place seek friction and find only fragments of it. Toes grazed a hanging strand. Nipples passed near the cups' inner surfaces. The Instrument shifted a fraction inside her. Cordelia began chasing those accidents with helpless little movements the suspension converted into greater sway.
 
-Anya observed with a researcher's focus and a friend's flushed sympathy. When Cordelia begged, she did not ridicule her, but neither did she rescue her from the choice already made. She guided the Instrument into a deeper rhythm, brought another impossible orgasm within reach and let the Rose steal it.
+Anya observed with a researcher's focus and a friend's flushed sympathy. When Cordelia begged, she did not ridicule her, but neither did she rescue her from the choice already made. She guided the Instrument into a deeper rhythm, carried Cordelia through another physical orgasm and maintained every motion while the Rose stole its pleasure.
 
 Afterward she lowered Cordelia into her arms. For several minutes they sat on the floor tangled in silk, Anya's hand stroking black hair while Cordelia trembled against her shoulder.
 
@@ -2893,11 +2893,11 @@ Her voice had the same unconvincing steadiness as Charsi's hatred.
 
 By the end of the first week, the Cataclysm reserve exceeded anything Emily had measured in the original blessing.
 
-The second week stopped resembling research.
+The second week stopped resembling research. The third made that change permanent.
 
 Need entered every part of Cordelia's day. The rose glowed through clothing. A saddle became intolerable. Her potion belt seemed designed to rub both hips. Twelve permanent elixirs made seams, footsteps and accidental touches feed a body already denied beyond good judgment.
 
-The women began working in pairs because one could no longer bring Cordelia to the edge efficiently while also controlling what she did when she reached it.
+The women began working in pairs because one could no longer carry Cordelia through a muted climax efficiently while also controlling what she did when the Rose took it.
 
 Charsi restrained her while Atma used her mouth. Kashya held a leash attached to the choker while Anya adjusted the Instrument inside her. Atma sat upon Cordelia's face and took her own pleasure while Charsi's hands worked the sorceress's exposed breasts and the Rose gathered every frustrated response below.
 
@@ -2911,7 +2911,7 @@ Cordelia asked Charsi for more tension. The chains tightened. Full breasts pulle
 
 "Again," Charsi said, quieter than command and firmer than a request.
 
-Cordelia repeated herself. Each spoken need made the arrangement more intimate. She could not see the smith's blush or Atma's knowing smile; she could only feel how accurately they answered. The edge arrived with her body held between them, one woman drawing pleasure upward through her breasts while the other built it below. Both stopped together.
+Cordelia repeated herself. Each spoken need made the arrangement more intimate. She could not see the smith's blush or Atma's knowing smile; she could only feel how accurately they answered. The climax arrived with her body held between them, one woman drawing pleasure upward through her breasts while the other built it below. Neither stopped. Charsi maintained the chain tension while Atma continued through every contraction, forcing Cordelia to feel the exact instant when the pleasure left her and became light.
 
 The Rose flared. Cordelia sobbed into the padding.
 
@@ -2921,7 +2921,7 @@ Another night Kashya locked Cordelia inside the cage while Anya sat outside it w
 
 The arrangement turned obedience itself into stimulation. Kashya made her hold eye contact while the Instrument filled both vagina and anus, its cheerful voice announcing neglected nipples, neglected clitoris and neglected feet until Anya sent smaller extensions to each. Cordelia became an inventory of available sensations under the commander's gaze.
 
-When the edge came, Kashya shortened the leash and held her upright by the choker while Anya stopped every extension at once.
+When the climax came, Kashya shortened the leash and held her upright by the choker while Anya kept every extension moving. Cordelia's body contracted around both branches of the Instrument; the Rose stripped the satisfaction from those contractions and left the cheerful device announcing how quickly her neglected places had become receptive again.
 
 "Please," Cordelia whispered.
 
@@ -2929,9 +2929,9 @@ Kashya's thumb touched the pulse beneath the choker. "Tomorrow."
 
 Cordelia hated how deeply the promise pleased her.
 
-Their intimacy remained practical and affectionate rather than romantic. They laughed when arrangements failed, argued over technique and stopped for meals. Then one of them would notice Cordelia shifting desperately against a chair, and practical mercy would become another hour of carefully unfinished pleasure.
+Their intimacy remained practical and affectionate rather than romantic. They laughed when arrangements failed, argued over technique and stopped for meals. Then one of them would notice Cordelia shifting desperately against a chair, and practical mercy would become another hour of completed physical responses from which every satisfying instant was carefully removed.
 
-By day fourteen, Cordelia had lost count of the edges.
+By day fourteen, Cordelia had lost count of the stolen orgasms.
 
 Emily had not.
 
@@ -2945,7 +2945,7 @@ Cordelia was kneeling in Kashya's cage with wrists secured behind her and Anya's
 
 "Two hundred and twelve," Emily said as Atma's toes tightened around the clitoral ring.
 
-That edge broke something quieter than composure.
+That climax broke something quieter than composure.
 
 Cordelia sagged against the cage, forehead resting upon cool bars while the Rose swallowed another release. For the first time she did not curse, bargain or laugh. Tears came without drama, caused by exhaustion as much as denial. She had chosen every day and could still end the entire plan by dismissing the set, but choice had become difficult to feel beneath need so constant it colonized every thought.
 
@@ -2965,25 +2965,35 @@ Kashya searched her face before closing the cage again. "Tomorrow remains availa
 
 "I know."
 
-That knowledge allowed the next fourteen edges to remain hers.
+That knowledge allowed the next fourteen thefts to remain hers.
 
-The third week belonged to excess.
+The third and fourth weeks belonged to excess disciplined into routine.
 
 Cordelia could no longer sleep without restraints preventing unconscious attempts to touch herself. The jewelry's maintenance stimulation never subsided because the reserve had no ordinary ceiling left. Nipple rings pulsed with every heartbeat. The clitoral jewel remained a constant golden pressure beneath the pink denial rune. Beneficent Attire interpreted stored power by exposing more of the body from which it came.
 
-On the final night, all four women helped.
+They did not stimulate her without pause. Even a magically reinforced body needed food, water, sleep and time in which every touched place was allowed to recover. Instead the Rose occupied all the spaces between sessions. Cordelia would finish breakfast still flushed from what Atma had taken before dawn. A brush of Charsi's knuckles during an armor fitting could make her hips move before either woman acknowledged it. Kashya needed only to touch the leash at her belt for Cordelia's nipples to tighten beneath whatever remained of her robe. Anya kept reducing the tincture because the sensitivity already preserved by the Rose made the original formula unreasonable.
+
+The physical reset after each muted climax became its own cruelty. For a few breaths Cordelia's muscles would soften and her heartbeat would begin to settle. The satisfaction which should have accompanied that release remained visible in the inscription instead, one more brilliant petal spreading across her abdomen. Then the curse's underlying arousal returned, often before the woman touching her had changed position. Cordelia became easier to bring through the next one, and the ease embarrassed her more deeply than endurance ever could.
+
+She had once needed elaborate restraint, patient technique and sustained stimulation. By day thirty, Charsi could make her body contract merely by pulling both nipple rings while the clitoral jewel pulsed. Atma could produce the same result with her mouth and one calm instruction to relax. Anya discovered that tracing the outer vines of the Rose sent enough reflected sensation inward to make Cordelia climax without direct genital touch. Kashya discovered that ordering her not to hide the response made it arrive faster.
+
+Cordelia hated every discovery. She requested that each be repeated.
+
+Day thirty-nine had been scheduled as the final full cultivation session. All four women helped.
 
 The Penitent Coil held Cordelia upright above the padded platform, wrists bound high behind her and legs spread. Charsi controlled the chains attached to both nipple rings. Kashya stood at her shoulder with one hand upon the choker and the other holding the leash. Atma knelt between Cordelia's thighs. Anya guided the Mutable Instrument, its silver body occupying vagina and anus while smaller extensions stroked her hypersensitive soles.
 
 They worked without mercy because Cordelia had asked them to.
 
-Atma's tongue and fingers drove her toward release while Charsi pulled the nipple chain in time with every movement. Anya altered fullness whenever Cordelia adapted. Kashya held her posture through the desperate struggles produced by each denied peak.
+Atma's tongue and fingers drove her through release while Charsi pulled the nipple chain in time with every movement. Anya altered fullness whenever Cordelia adapted. Kashya held her posture through the desperate struggles produced as each climax was emptied of satisfaction.
 
 The phrase *without mercy* did not mean without care. Kashya kept two fingers beneath the choker so restraint never compromised breath. Charsi watched the color of Cordelia's nipples and eased each chain between pulls. Anya's magic monitored pulse, pain and circulation. Atma listened to every change in the sounds Cordelia made against her mouth. Their safety allowed cruelty to become precise.
 
-Charsi drew both nipple rings until Cordelia's full breasts stretched forward, then released them just as Atma pushed two fingers deep and sealed her mouth around the clitoral jewel. The sudden change sent Cordelia into the first denied climax of the night. Her body contracted around Atma's fingers. The Rose caught the release before it completed and burned brighter over her abdomen.
+Charsi drew both nipple rings until Cordelia's full breasts stretched forward while Atma pushed two fingers deep and sealed her mouth around the clitoral jewel. Cordelia climaxed around the hand inside her. Atma continued moving through every contraction. Charsi maintained the pull upon both breasts. The Rose muted the pleasure at its brightest instant and drank it in a stream of pink-gold light.
 
-Anya answered by expanding the Instrument inside both openings. Fullness became a deep, immovable pressure while its smaller branches curled around each foot. Silver filaments slipped between Cordelia's toes, rubbed hypersensitive pads and drew along high arches. Her feet tried to retreat and found the suspension holding them pointed and available.
+Cordelia's body softened for three breaths.
+
+Anya expanded the Instrument inside both openings before the fourth. Fullness became a deep, immovable pressure while its smaller branches curled around each foot. Silver filaments slipped between Cordelia's toes, rubbed hypersensitive pads and drew along high arches. Her feet tried to retreat and found the suspension holding them pointed and available.
 
 Kashya used the leash to make her face forward.
 
@@ -2993,23 +3003,23 @@ Cordelia opened unfocused eyes.
 
 Charsi stood flushed and intent, one chain wrapped around each strong hand. Atma's mouth shone with Cordelia's wetness. Anya controlled the silver thing filling her with an expression divided between wonder and arousal. Kashya remained closest, calm enough to contain everyone else's excess, though the hand around the leash trembled faintly.
 
-Cordelia understood then that her helplessness was not happening before four detached observers. Each woman had given something to the three weeks. Charsi had given shyness. Atma had given physical intimacy she normally kept behind hospitality. Anya had allowed curiosity to become appetite. Kashya had surrendered the safety of pretending discipline meant indifference.
+Cordelia understood that her helplessness was not happening before four detached observers. Each woman had given something to the thirty-nine days. Charsi had given shyness. Atma had given physical intimacy she normally kept behind hospitality. Anya had allowed curiosity to become appetite. Kashya had surrendered the safety of pretending discipline meant indifference.
 
-The realization pushed Cordelia to the brink again before anyone moved.
+The realization carried Cordelia through another climax before anyone needed to change rhythm.
 
-They moved anyway.
+They continued anyway.
 
-The Rose Sentence stopped orgasm again and again. Pink light became gold within the jewelry. Cordelia begged each friend by name. She promised artifacts, runes and concessions no one intended to collect. Her amber-brown eyes lost focus; black hair stuck to flushed cheeks; full breasts shook beneath Charsi's measured pulls. Bare toes curled around the Instrument's teasing silver lines.
+The Rose Sentence stole orgasm after orgasm. Pink light became gold within the jewelry. Cordelia begged each friend by name. She promised artifacts, runes and concessions no one intended to collect. Her amber-brown eyes lost focus; black hair stuck to flushed cheeks; full breasts shook beneath Charsi's measured pulls. Bare toes curled around the Instrument's silver lines while muted contractions passed through her and left desire untouched.
 
-She stopped begging for the Cataclysm. The Hellfire Torch, the Ubers and the entire plan receded behind the immediate truth of her body. She needed an orgasm because she needed one; because three weeks had reduced pride, strategy and language to a single unsatisfied demand. Every plea became personal.
+She stopped begging for the Cataclysm. The Hellfire Torch, the Ubers and the entire plan receded behind the immediate truth of her body. She needed satisfaction because she needed it; because thirty-nine days had reduced pride, strategy and language to a single unmet demand. Every plea became personal.
 
 "Charsi, please."
 
 The smith pulled harder and wept while doing it.
 
-"Atma—please let me—"
+"Atma—please let me feel it."
 
-Atma kissed the clitoris she was required to deny.
+Atma kissed the clitoris whose pleasure the Rose would steal and carried her through another one.
 
 "Anya, I cannot—"
 
@@ -3019,23 +3029,127 @@ Cordelia turned last toward Kashya. The leash allowed only a few inches.
 
 "Please," she whispered.
 
-Kashya cupped her jaw. For one dangerous instant compassion seemed likely to end the sentence.
+Kashya cupped her jaw. Compassion remained in the touch. Capitulation did not.
 
 "No," the commander said.
 
-The refusal was quiet, absolute and exactly what Cordelia had entrusted her to provide. It broke the final edge across the Rose in a burst of pink-gold light.
+The refusal was quiet, absolute and exactly what Cordelia had entrusted her to provide. Another physical orgasm rolled through her. The Rose emptied it of pleasure and opened a new ring of petals across her hips.
 
-At the final edge, every woman stopped.
+Nobody stopped until Anya's monitoring spell indicated that rest had become wiser than further accumulation. Atma withdrew gently. Charsi released the chains. The Instrument softened inside Cordelia before sliding free. Kashya kept hold of the leash while the Coil lowered her onto the padded platform.
 
-Cordelia hung trembling in the Coil, all sensitive places exposed and unfinished.
+Cordelia lay exposed and trembling, her immediate physical pressure reset and the unsatisfied heat already beginning to return.
 
-Emily approached the choker. The ghost's humor had finally given way to caution.
+Emily approached the choker. The ghost's humor had given way to calculation.
 
-"The reserve no longer has a predictable upper bound," she said. "Cataclysm may kill the Ubers. It may erase the pocket realm. I cannot promise the effect will remain destructive rather than becoming something stranger."
+"It will probably be enough," she said.
 
-Cordelia looked at the three organs waiting beside the Cube.
+Five women looked at her.
 
-"Open the portal."
+"Probably?" Kashya asked.
+
+"All three Prime Evils will be drawing upon the same regenerative convergence. The reserve should overwhelm it. I would prefer a larger margin."
+
+Cordelia lifted her head from Atma's lap. "How much larger?"
+
+Emily examined the Rose, the choker and the gold moving beneath both. "Five days."
+
+The original term had less than one day remaining.
+
+Cordelia's body understood before her thoughts did. The Rose had taught it to anticipate the fortieth sunrise: not merely an available orgasm, but the simultaneous return of everything stolen across nearly six weeks. The prospect frightened her. It also lived inside her as a promise so enormous that postponing it felt like having freedom displayed just beyond the bars of Kashya's cage.
+
+"No," Cordelia said.
+
+Emily nodded. "Then we use what we have."
+
+The easy acceptance made Cordelia close her eyes.
+
+Charsi stroked damp hair from her face. Atma continued supporting her head. Anya loosened the silk around her ankles. Kashya said nothing at all. The decision remained exactly where it belonged.
+
+Cordelia imagined entering Tristram tomorrow with a reserve Emily considered probable. She imagined the Ubers surviving. Beneath that practical argument lay the less respectable truth: five additional days now felt unbearable, which made consenting to them almost unbearably arousing.
+
+"Wait," she whispered.
+
+Emily waited.
+
+"Extend the Sentence by five days."
+
+"You are authorizing forty-five days in total, with the accumulated pleasure released only when you deliberately open the Rose inside Uber Tristram."
+
+Cordelia hated the precision. She loved having no ambiguity behind which to retreat later.
+
+"Yes."
+
+The inscription tightened.
+
+A second ring of petals unfolded across her lower abdomen, luminous vines reaching farther around both hips. The term changed inside her with unmistakable finality. Tomorrow's promised release moved five days away.
+
+Cordelia made a wounded sound.
+
+Emily's brightness returned. "Excellent margin."
+
+Kashya looked down at the woman who had just extended her own torment. "You may complain about this decision exactly once."
+
+"I intend to complain continuously."
+
+"Then make the first one comprehensive."
+
+The last five days were pure torture.
+
+Cordelia loved every minute of them.
+
+Love did not make her graceful. She cursed Emily during breakfast on day forty-one because the ghost cheerfully reminded her what should have happened that morning. She accused Charsi of treachery when the smith discovered that resting one warm palm upon Cordelia's breast was now enough to make the nipple ring pulse and her thighs open. She told Atma that kindness had become morally suspicious while accepting another cup of water from her hands. She informed Anya that the tincture was unnecessary, then begged for another stroke of the brush. She called Kashya cruel whenever the commander made her state plainly whether she wished to continue.
+
+Every time, Cordelia said yes.
+
+The women rotated so that care never vanished beneath intensity. One managed the restraints and stimulation; another monitored Cordelia, brought water and ended a session when fatigue mattered more than the reserve. They bathed her, fed her, massaged cramped muscles and let her sleep between long periods of play. The arrangement made her helplessness safer and therefore allowed her to surrender to it more completely.
+
+On day forty-two, Charsi fastened Cordelia facedown across the padded workbench and drew both wrists high behind her. Atma knelt beneath the opening. The first pass of her tongue brought Cordelia to climax so quickly that Charsi thought something had gone wrong. The Rose flashed; Cordelia's body contracted; the pleasure disappeared.
+
+"Nothing wrong," Cordelia gasped into the padding. "Again."
+
+Atma did not lift her mouth. Charsi kept the nipple chains taut while the reset passed and arousal returned. Cordelia reached the next climax faster. The humiliation of that speed made the third arrive faster still. By then she was moving helplessly against Atma's face, begging for satisfaction while Charsi quietly named every response she could no longer hide.
+
+On day forty-three, Anya painted only three drops of tincture across the Rose. The first touched its central petal. The second traced one nipple. The third divided between Cordelia's sensitive soles. The Penitent Coil held her with hands bound behind her and bare toes barely touching the floor. Rising onto tiptoe relieved pressure between her thighs but made the silver strands tease her arches; lowering her heels allowed the Instrument to rub against her clitoris.
+
+No position was neutral. Cordelia chose between them until trembling calves made choice impossible. Anya let the Coil decide, alternating her balance while the Mutable Instrument supplied whatever stimulation each posture lacked. Muted orgasms passed through Cordelia in helpless succession, every one physically complete and emotionally empty. The pink-gold Rose became bright enough to illuminate the floor beneath her.
+
+On day forty-four, Kashya returned her to the eastern cage.
+
+Cordelia knelt naked behind the bars, wrists cuffed behind her and knees held apart by a padded spreader. Kashya used no elaborate device. She used one stockinged foot and the authority Cordelia had spent forty-four days teaching her to accept. The sole pressed against the clitoral jewel and moved without hurry.
+
+"How many?" Kashya asked after the Rose stole the first orgasm.
+
+Cordelia tried to answer that counting was Emily's vice. Kashya increased the pressure. Her body betrayed her before the joke became coherent.
+
+"Two," she admitted when the muted contractions ended.
+
+"Again."
+
+By the fifth, Cordelia's voice shook. By the ninth, she could no longer deny how eagerly her hips followed the stockinged foot during the brief reset after each theft. By the twelfth, Kashya needed only to say *again* and let the jewelry amplify the command.
+
+The commander watched every physical climax arrive and every trace of satisfaction leave Cordelia's face. She did not interrupt the stimulation to manufacture denial. She made Cordelia endure the more intimate cruelty of being brought all the way through and receiving nothing she could keep.
+
+"Tomorrow," Kashya said when she finally removed her foot.
+
+Cordelia sagged against the bars, crying softly from relief, frustration and anticipation. "Promise?"
+
+Kashya touched two fingers beneath her chin and raised her face. "You have my word."
+
+Day forty-five began before dawn.
+
+All four women prepared Cordelia together. They bathed her, checked every mark and dressed her in the complete jewelry set. Beneficent Attire reduced her equipment to its most revealing ceremonial form. Extreme heels lifted legs made uncertain by six weeks of arousal. The Rose covered her lower abdomen in two brilliant rings of petals, with enough gold beneath the pink that looking directly at it hurt.
+
+They gave her one final session—not to reach a last edge, but to add every safe measure of power they could before the portal.
+
+The Coil held her upright. Charsi managed the nipple chains. Atma remained between her thighs. Anya guided the Instrument through the rhythms Cordelia's body could no longer resist. Kashya held the leash and kept Cordelia's eyes upon the women responsible for what she had become.
+
+They continued through each muted orgasm. The Rose stole pleasure in great pink currents while Cordelia's body contracted around fingers and silver, softened briefly, then opened for them again. She begged sincerely for the final release and felt fresh arousal when no one mistook begging for withdrawal. Her helplessness was complete without being abandoned: every woman knew the boundary, every woman knew the goal, and every woman continued because Cordelia had asked them to carry her past the point where immediate desire could be trusted.
+
+Emily ended the session only when the accumulated reserve made her spectral outline flicker.
+
+"Now," she said. "Before excellent margin becomes geographical revision."
+
+Charsi and Anya freed Cordelia from the apparatus. Atma cleaned her with warm cloths. Kashya held both hands until Cordelia could stand in the extreme heels without falling.
 
 Cain combined Diablo's Horn, Baal's Eye and Mephisto's Brain in Harrogath at dawn.
 
@@ -3047,7 +3161,7 @@ Uber Tristram waited under a bruised sky. The familiar houses had collapsed into
 
 All three turned toward Cordelia.
 
-She wore the complete set and almost nothing else. Three weeks of stored Cataclysm shone beneath bronze skin. The Rose Sentence burned pink above her exposed sex. Her breasts were full and flushed around the silver rings; her hands shook at her sides; extreme heels lifted long legs made unsteady by denial.
+She wore the complete set and almost nothing else. Forty-five days of stolen pleasure shone beneath bronze skin. The Rose Sentence burned pink above her exposed sex. Her breasts were full and flushed around the silver rings; her hands shook at her sides; extreme heels lifted long legs made unsteady by denial.
 
 Emily's tactical plan involved gathering the three, using Barrier and waiting for lethal damage.
 
@@ -3065,7 +3179,7 @@ Mephisto's attention felt cold upon her breasts. Diablo stared at the Rose as th
 
 Humiliation entered the stored charge like fresh air entering flame.
 
-They knew nothing of the Rose, the spell or the friends who had spent three weeks filling her with power. They saw an enemy offering herself in a body already fragrant with arousal and desperation. The legacy magic redirected murderous intent toward selfish appetite.
+They knew nothing of the Rose, the spell or the friends who had spent forty-five days filling her with power. They saw an enemy offering herself in a body already fragrant with arousal and desperation. The legacy magic redirected murderous intent toward selfish appetite.
 
 Mephisto reached her first. His claws caught the nipple chain and lifted. Diablo seized her waist from behind. Baal's magic closed around wrists and ankles, binding her before the square's ruined fountain.
 
@@ -3077,13 +3191,13 @@ They did not coordinate kindly. Mephisto pulled her forward by the nipple chain 
 
 Mephisto filled her mouth with the same cold entitlement he brought to every throne. Cordelia worked around him because service was the role she had offered and because obedience made the situation hotter. Each time her throat resisted, his claw tightened upon the chain. Pain crossed both swollen nipples, her cry vibrated around him, and Diablo answered by thrusting deeper into the wet body held open from behind.
 
-The Rose caught every attempted release. Cordelia felt denied contractions begin around Diablo and vanish into the pink rune. She could not pull away from the penetration which caused them. Baal's duplicates laughed when her toes curled, then separated each sensitive toe and teased the webbing between them until frantic movement became another spectacle.
+The Rose caught every release. Cordelia climaxed around Diablo in hard physical contractions while he continued using her, but the pleasure disappeared at the instant it should have crested and flowed into the pink rune. Her body briefly reset around him. The baseline arousal remained, already turning the theft and her inability to stop his next thrust into renewed need. Baal's duplicates laughed when her toes curled, then separated each sensitive toe and teased the webbing between them until frantic movement became another spectacle.
 
-Three weeks had left no part of her neutral. A claw over one sole reached her clitoris. A chain tug at her breasts tightened her vagina around Diablo. Mephisto's use of her mouth made the humiliation itself feel like another organ being stroked.
+Forty-five days had left no part of her neutral. A claw over one sole reached her clitoris. A chain tug at her breasts tightened her vagina around Diablo. Mephisto's use of her mouth made the humiliation itself feel like another organ being stroked.
 
 The Rose still denied her.
 
-Three weeks of need made every touch catastrophic. Diablo's first deep thrust nearly broke the sentence. Mephisto felt Cordelia cry around him and forced her mouth farther. Baal observed the pink rune brighten and, understanding only that denial intensified her reactions, deliberately prolonged it.
+Six weeks of need made every touch catastrophic. Diablo's first deep thrust drove her through another muted climax. Mephisto felt Cordelia cry around him and forced her mouth farther. Baal observed only that her reactions intensified when the pink light brightened and prolonged whatever produced them.
 
 They changed her position repeatedly. Diablo bent her over the restored stump of Griswold's old forge and used her anus while a duplicate filled her vagina. Mephisto compressed her breasts around himself, dragging both nipple rings through soft flesh. Baal sat her astride one duplicate in the square and held her extreme heels above the ground so she had no leverage to ride except what his magic supplied.
 
@@ -3099,33 +3213,35 @@ Baal discovered that making her laugh while penetrated drove the Rose brighter. 
 
 Cordelia remained bound, penetrated and displayed among all three Prime Evils. Every selfish use added charge to a reserve already beyond measurement. The rose tattoo spread its luminous vines across her hips. Gold showed through it like sunrise beneath petals.
 
-She could have opened the sentence immediately. Instead she remained because no fantasy produced during three weeks of denial had been hotter than this reality: Diablo, Mephisto and Baal using her together, unaware that the helpless sorceress between them contained enough power to rewrite their world.
+She could have opened the sentence immediately. Instead she remained because no fantasy produced during forty-five days of denial had been hotter than this reality: Diablo, Mephisto and Baal using her together, unaware that the helpless sorceress between them contained enough power to rewrite their world.
 
 She let each of them finish. Their pleasure had been irrelevant to the spell when she entered; now it became part of the scene she wanted completed. Mephisto marked her breasts and mouth. Diablo left heat deep in both used openings. Baal's duplicates covered exposed skin with evidence of their own satisfaction while his magic prevented her from closing her legs or wiping any of it away.
 
 Cordelia endured the mess as another form of display. All sensitive parts remained open, swollen and available. The Prime Evils saw a conquered woman too desperate for release to resist them. They could not perceive the choice beneath her submission or the Cataclysm brightening around every place they had used.
 
-For three weeks she had needed an orgasm. Now she wanted one under them—bound, filled, humiliated and still secretly the most dangerous being in Tristram.
+For forty-five days she had been allowed physical orgasms and denied every satisfying one. Now she wanted the impossible accumulation returned under them—bound, filled, humiliated and still secretly the most dangerous being in Tristram.
 
-Baal noticed her approaching release and stopped the duplicate beneath her.
+Baal's duplicate kept moving. Another muted climax contracted around it while spectral hands maintained their hold upon her feet. The Rose stole the pleasure and blazed so brightly that all three Prime Evils recoiled from the light without understanding it.
 
 Cordelia laughed.
 
-It began breathlessly, almost a sob. Then she saw confusion enter the Lord of Destruction's face and laughter became genuine. He believed stopping had returned control to him. Mephisto still held her breasts. Diablo's hand remained between her spread thighs. The three greatest evils in creation had reduced her to a trembling, used vessel and had no idea that every indignity belonged to the weapon about to erase them.
+It began breathlessly, almost a sob. Then she remembered day thirty of the first Sentence: one month returning around Kashya's hand, the astonishment, the helpless pleasure and three days during which walking had become an aspiration. This Rose contained forty-five days of far more deliberate cultivation, twelve permanent elixirs and the jewelry's complete Arcane circuit. She had anticipated this moment through every stolen orgasm. Now that it had arrived, anticipation sharpened into genuine fear.
 
-The sound unsettled him.
+The fear made her wetter around the thing still moving inside her.
+
+The three greatest evils in creation had reduced her to a trembling, used vessel and had no idea that every indignity belonged to the weapon about to erase them. Cordelia could end the scene privately, dismiss the set and dissipate the reserve without releasing it. Instead she accepted the last terrified measure of what she had chosen.
 
 She released the Rose Sentence.
 
-Every denied orgasm arrived as one.
+Every stolen orgasm returned as one.
 
-Her body contracted around the figures filling vagina and anus. Mephisto remained in her mouth; hands pulled both nipple rings; Baal's magic held her feet high and helpless. Pleasure exceeded sensation and became structure. Twenty-one days, hundreds of edges, twelve permanent elixirs and every woman's devoted assistance converged inside the choker.
+Her body contracted around the figures filling vagina and anus. Mephisto remained in her mouth; hands pulled both nipple rings; Baal's magic held her feet high and helpless. Pleasure exceeded sensation and became structure. Forty-five days, hundreds of stolen orgasms, twelve permanent elixirs and every woman's devoted assistance converged inside the choker.
 
-Cordelia felt the three weeks return in layers. Charsi's careful chain pulls became fire across her breasts. Atma's patient mouth became the unbearable precision around her clitoris. Anya's tincture illuminated every place stretched, marked or filled. Kashya's refusals gave the release its discipline, holding Cordelia conscious inside an orgasm vast enough to erase thought.
+Cordelia felt the six weeks return in layers. Charsi's careful chain pulls became fire across her breasts. Atma's patient mouth became unbearable precision around her clitoris. Anya's tincture illuminated every place stretched, marked or filled. Kashya's refusals gave the release its discipline, holding Cordelia conscious inside an orgasm vast enough to erase thought. Beneath them came five additional days she had chosen while already desperate, returned with enough force to make that extension feel like a separate creature opening inside her.
 
 She cried each woman's name into Mephisto's body, the sounds lost and unnecessary. They were present in the power whether they witnessed its use or not. What had begun as an embarrassing group solution ended as trust made physical: four friends had taken her at her word, denied her when she genuinely begged and delivered her to this impossible reward without once confusing helplessness with abandonment.
 
-The pleasure kept increasing. Her vagina and anus contracted around demonic fullness until both Prime forms began turning gold at the edges. Nipple rings burned white within Mephisto's grip. Baal's restraints forced her feet to remain displayed even as every toe curled and shook. Cordelia could no longer tell whether she was screaming, laughing or simply radiating the answer to three weeks of need.
+The pleasure kept increasing. Her vagina and anus contracted around demonic fullness until both Prime forms began turning gold at the edges. Nipple rings burned white within Mephisto's grip. Baal's restraints forced her feet to remain displayed even as every toe curled and shook. Cordelia could no longer tell whether she was screaming, laughing or simply radiating the answer to forty-five days of need.
 
 Cordelia shaped it outward.
 
@@ -3145,7 +3261,7 @@ Emily entered first. She took one look at the restored square, lost corporeal di
 
 Cain followed with both hands upon his staff. He stared at the rebuilt roofs, the clear well and the green grass pushing between whole paving stones. His mouth opened. Nothing scholarly emerged. For once, Deckard Cain was simply amazed.
 
-Cordelia sat beside the new fountain. Satisfaction softened every line of her body. A large unique charm lay upon the grass, its flames contained within carved wood.
+Cordelia sat beside the new fountain because standing had become impossible. Satisfaction softened every line of her body. Forty-five days of anticipation had been repaid so completely that her legs trembled when she merely considered using them. A large unique charm lay upon the grass, its flames contained within carved wood.
 
 Cain identified the Hellfire Torch.
 
@@ -3177,13 +3293,13 @@ Kashya tried to refuse the Hellfire Torch when they returned. Cordelia identifie
 
 "You earned this," Kashya said, fingers closing around the warm carved charm.
 
-Cordelia's body still carried fading marks from the cage, the Coil and the Ubers. She remembered Kashya offering freedom on day fourteen and refusing release on the final night.
+Cordelia's body still carried fading marks from the cage, the Coil and the Ubers. She remembered Kashya offering freedom on day fourteen, keeping her word on day forty-four and holding both hands before the portal.
 
 "So did you," she replied.
 
 Kashya understood that the gift was not payment. That would have cheapened both the work and what they had shared. It was loot distributed according to usefulness, affection expressed in the practical language both women trusted most.
 
-Weeks later, Kashya still wore the Torch as a trinket at her belt. Her fingers often touched its warm carved wood while she reviewed patrol reports, an unconscious gesture gentler than anything in her expression. No one asked whether she remembered restored Tristram, the three weeks which had made its restoration possible, or Cordelia begging her through the bars of a clean iron cage.
+Weeks later, Kashya still wore the Torch as a trinket at her belt. Her fingers often touched its warm carved wood while she reviewed patrol reports, an unconscious gesture gentler than anything in her expression. No one asked whether she remembered restored Tristram, the forty-five days which had made its restoration possible, or Cordelia begging her through the bars of a clean iron cage.
 
 The answer could be several things at once.
 

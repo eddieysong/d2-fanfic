@@ -467,7 +467,7 @@ The phallus drove forward as the clitoral tongue curled and both breast pads rol
 
 Cordelia came before the second coordinated motion completed.
 
-The orgasm tore through her with none of the Rose Sentence's accumulated delay and all of its intensity. She convulsed in the Instrument's support, vagina clenching around silver which reshaped itself through every contraction. Pleasure flared in nipples, clitoris, breasts, feet and every sensitized path between them. Her toes strained in their soft loops. Her fingers went white around the bar. She cried out until the voice became a sob, then came again when the artifact adapted to the first release instead of merely continuing through it.
+The orgasm tore through her with none of the Rose Sentence's muting theft and all of its intensity. She convulsed in the Instrument's support, vagina clenching around silver which reshaped itself through every contraction. Pleasure flared in nipples, clitoris, breasts, feet and every sensitized path between them. Her toes strained in their soft loops. Her fingers went white around the bar. She cried out until the voice became a sob, then came again when the artifact adapted to the first release instead of merely continuing through it.
 
 "Exceptional response! Beginning supportive continuation."
 
