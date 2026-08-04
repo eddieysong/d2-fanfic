@@ -25,6 +25,7 @@ test("renders the chronological archive index", async () => {
   assert.match(html, /After the Worldstone/);
   assert.match(html, /The Fourth Discipline/);
   assert.match(html, /Knots of Her Own/);
+  assert.match(html, /href="#zephira">Zephira<\/a>/);
   assert.match(html, /The Beneficent Archives/);
   assert.match(html, /View the gallery/);
   assert.match(html, /<strong>63<\/strong>\s*entries/);
