@@ -1,6 +1,6 @@
 # The Rose Sentence
 
-The rune was prettier than anything designed to steal orgasms for thirty days had a right to be.
+The rune was prettier than anything designed to steal orgasms had a right to be.
 
 It lay upon a black stone lectern in an annex of the Arcane Sanctuary. Vohl's chamber waited beyond impossible paths and a wall which appeared only when approached backward while holding a flawless amethyst.
 
