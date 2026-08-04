@@ -1,0 +1,190 @@
+# Cordelia: Story Bible
+
+## Form
+
+- Adult humorous erotic adventure set in an alternate *Diablo II: Lord of Destruction*.
+- Twenty-seven chapters, one for each canonical quest: Act I (6), Act II (6), Act III (6), Act IV (3), Act V (6).
+- A short final sequence after Baal establishes Cordelia's voluntary Holy Grail hunt.
+- Target prose: intimate, flowing, sensuous, playful, and observant. Avoid choppy action-summary prose.
+- Quest plots remain recognizable, but supporting travel, recovery, conversation, and character development may share each chapter.
+
+## Cordelia
+
+- Cordelia is twenty-seven, an exceptionally attractive Zann Esu Sorceress, proud of her education, capable in combat, vain in ways she does not advertise, and relentlessly dry when embarrassed.
+- Cordelia is tall and long-legged, with a graceful athletic build softened by full breasts, a narrow waist, rounded hips, and strong thighs developed through travel. She is visibly feminine rather than waifish or heavily muscular.
+- Her skin is warm bronze with golden undertones. Exertion and embarrassment bring a visible flush to her face, throat, breasts, and upper chest. Marks, moisture, dust, frost, soot, and magical light remain visually legible against her skin during and after encounters.
+- She has long, heavy black hair, usually tied high for travel but prone to escaping around her face in battle. Once loosened it falls past her shoulder blades. Her eyes are amber-brown, sharp and expressive; her mouth is full, naturally dark, and especially revealing when she is trying not to react.
+- Her hands are fine-boned but trained, with small spell-calluses along the fingers. Her feet are elegant and distinctly pretty: high arches, narrow heels, proportionate toes, and neatly maintained nails despite travel. Her soles are unusually sensitive.
+- Cordelia knows she is beautiful and normally controls how that beauty is presented. Much of her humiliation comes from losing that control: clothing opened or transformed, hair disordered, carefully composed features made helplessly expressive, and involuntary arousal becoming visible to monsters.
+- She is not destined to save Sanctuary and nobody blames her if she refuses. She continues because she chooses to finish what she began.
+- During the original five-act journey, she travels and fights alone. Charsi, Kashya, Atma, and Anya become trusted friends, with affection and attraction usually remaining in subtext; they do not accompany her into or watch those original private encounters. After Baal, they may knowingly participate in consensual intimate experiments while remaining friends rather than a permanent harem.
+- Her arc is not corruption or personality replacement. She discovers that she genuinely enjoys chosen helplessness, rough use, denial, and humiliation. Her growing honesty about this never invalidates her agency.
+- Cordelia's feet are displayed, restrained, teased, occasionally tickled, and put to use. They are not treated as sacred objects or subjected to repetitive worship scenes.
+
+## Prose and Style Guide
+
+- Use close third-person limited through Cordelia. The reader inhabits her physical sensations, private rationalizations, embarrassment, fear, curiosity, arousal, and changing self-knowledge. Do not narrate monster psychology beyond what Cordelia can observe from behavior.
+- Prose is intimate, flowing, sensuous, playful, and slightly luxuriant. Favor varied sentence lengths, developed paragraphs, tactile imagery, and transitions that let sensations accumulate. Avoid strings of short declarative sentences except at deliberately sharp moments.
+- Spend meaningful words on imagery: Cordelia's body and expression, the fall of her hair, exposed skin, transformed clothing, restraints, posture, monster anatomy, light, texture, temperature, sound, and the physical environment.
+- Describe Cordelia repeatedly but selectively. Use the features the current action reveals or changes rather than pausing for a full inventory every chapter. A restraint scene may emphasize shoulders, breasts, wrists, and posture; a heel scene may emphasize calves, arches, toes, balance, and stockings.
+- Keep erotic action physically clear. Identify oral, vaginal, or anal penetration plainly when it occurs. Do not conceal the central action beneath vague metaphors, but avoid clinical choreography.
+- Give substantial attention to how Cordelia feels during use: discomfort of position, lost leverage, strain in bound limbs, involuntary bodily responses, the difference between pain and harm, rising sensitivity, emotional shame, and the private choice to remain.
+- Do not compress ensemble intimacy into a catalogue of techniques. When Charsi, Kashya, Atma, Anya, or Emily participates, dramatize what the encounter reveals about her as well as what she physically does. Give room to mutual arousal, trust, vulnerability, embarrassment, spoken honesty, recovery, and the characters' ability to return naturally to friendship afterward.
+- Monsters are selfishly motivated. They use Cordelia for their own gratification, react eagerly to visible arousal and suffering, and intensify whatever produces moans, tears, trembling, struggling, or involuntary movement. They do not try to help her achieve the explosion and do not know it is coming.
+- Cordelia does not manage an accepted encounter through spoken orders. Pleading, bargaining, protests, and begging become part of the erotic soundscape and may excite the monsters rather than control them. Her only safety control is the private mental withdrawal that ends the entire alternative.
+- Establish the mental exit clearly when needed, then let its continued availability live in Cordelia's awareness without repetitive disclaimers. Her choice not to use it should carry emotional weight when an encounter becomes more difficult than anticipated.
+- Build erotic scenes through stages: apprehension and observation; loss of weapons or clothing; restraint and display; discovery of vulnerable responses; selfish use; prolonged escalation or denial; overwhelming release; abrupt aftermath. Vary or omit stages when repetition would become mechanical.
+- Give each encounter one primary erotic identity and no more than one or two supporting motifs. Do not make every scene use every exposed body part or kink. Reserve total simultaneous availability for late-story escalation.
+- Humor comes from Cordelia's dry perception, the blessing's wily salesmanship during stopped time, mundane NPC aftermaths, Diablo II quest logic, and the contrast between epic scenery and indecent circumstances. Do not interrupt an emotional or erotic peak with constant jokes.
+- Act bosses may be weary during the preliminary fight because they have been farmed endlessly, but they never understand or discuss the blessing. Once desire replaces violence, they act according to their own personalities and appetites rather than behaving like cooperative scene partners.
+- Foot content remains balanced. Use visual display, forced posture, sensitive soles, stockings, punishing heels, toe balance, brief teasing, and occasional sexual use. Avoid reverent worship language and avoid making tickling the dominant device in more than one encounter.
+- Aftermath matters. Show physical soreness, marks, altered clothing, lingering arousal, embarrassment, recovery, and the contrast between how much Cordelia experienced privately and how little her friends witnessed.
+- Avoid choppy summary prose, repeated consent disclaimers, monsters obeying tactical requests, monsters anticipating their deaths, self-aware reward-table dialogue, every boss knowing the blessing, repetitive tickling, treating Cordelia's feet as sacred, and orgasms caused by insufficient stimulation.
+
+## The Cairn-Stone Blessing
+
+- During Chapter 3, Cordelia reaches the Cairn Stones before recovering or reading the Scroll of Inifuss. Tired, she tries to sit against one and accidentally touches the stones in the wrong sequence.
+- The dormant Horadric blessing awakens but does not immediately change monster behavior.
+- Whenever Cordelia receives lethal damage, time stops. The blessing speaks with the voice and manner of a wily, shameless prankster.
+- It offers two choices:
+  1. Decline: suffer an ordinary softcore defeat and awaken safely in town.
+  2. Accept: receive a complete preview of the proposed erotic encounter, including partners, restraint, penetration, intensity, duration, and lasting consequences. The monsters then capture and use her instead of killing her.
+- Cordelia must consciously accept. A private mental refusal remains available during every encounter and immediately converts the outcome to ordinary defeat. This is established clearly once and then trusted rather than repeatedly restated.
+- Once Cordelia accepts and time resumes, she cannot direct, negotiate with, or manage the monsters. Spoken pleading may affect them only as erotic stimulus; it is not a safety mechanism and they need not obey it. Her sole control is the silent mental decision to reject the entire alternative, which the blessing recognizes instantly.
+- Monsters never know that the blessing exists, never understand that Cordelia's orgasm will destroy them, and never cooperate in producing a tactical release. The magic replaces their killing impulse with overwhelming attraction, but their motives remain selfish: they restrain and use Cordelia for their own pleasure. Her arousal, helplessness, embarrassment, pain, and involuntary reactions excite them and encourage further use.
+- After sustained pleasure reaches the required threshold, Cordelia's orgasm releases a level-99 magical explosion, destroys all nearby hostiles and witnesses, and teleports her naked and glowing to town.
+- Friendly NPCs never watch an encounter. They see only departures, returns, marks, altered equipment, and Cordelia's selectively edited reports.
+
+## Erotic Escalation
+
+- Each encounter has one principal style and at most one or two supporting motifs. Do not make every scene a catalogue of every kink.
+- Physical stimulation is concrete and sufficient. If penetration occurs, state its form clearly rather than hiding it behind euphemism.
+- Act I: shock, reluctant curiosity, first chosen surrender.
+- Act II: experimentation, bound hands, breast sensitivity, ritualized service.
+- Act III: humiliation, display, psychological honesty, and punishing footwear.
+- Act IV: Cordelia stops pretending every plea for release is merely tactical.
+- Act V: she knowingly chooses ordeals that leave her needy and helpless because she has accepted that she enjoys them.
+- Tickling is used sparingly: principally as an early discovery of foot sensitivity, with only brief later callbacks.
+
+## The Jewelry and Attire
+
+### Andariel: nipple rings joined by a short chain
+
+- Permanently attach after Andariel falls.
+- Vibrate near enemies, impose -50% casting speed, and constantly drain mana through distraction.
+- Activates Beneficent Attire. Every equippable item worn or carried upon Cordelia—including reserve gear in her traveling inventory—retains its statistics, magic, durability, and material identity while being transformed. Equipment stored in a remote stash remains ordinary until brought within the set's reach. The transformation worsens with each set piece. With Andariel's piece alone, equipment becomes provocatively fitted, slit, and sheer in selected places while remaining recognizable as clothing. The aesthetic is lecherously 'helpful,' not demonic.
+
+### Duriel: bracelets
+
+- Twenty-five percent chance on being hit to pull Cordelia's wrists behind her and bind them.
+- Two-piece bonus: nipple-ring vibration intensifies while her hands are bound.
+- Beneficent Attire advances from provocative to openly indecent: deeper cuts, shorter hems, more transparency, garters, exposed back and stomach, and armor redesigned around access rather than modesty.
+
+### Mephisto: ankle chains
+
+- Twenty-five percent chance on being hit to bind her ankles together.
+- All footwear becomes extreme high heels; other legwear often becomes stockings.
+- Three-piece bonus: restraint forces Cordelia into a randomly selected fully exposed position.
+- Beneficent Attire becomes shamelessly fetishized: tiny armored cups, narrow straps, exposed hips and buttocks, thigh-high stockings, and heels engineered for display rather than travel.
+
+### Diablo: clitoral ring
+
+- Vibrates constantly and sets defense and blocking to zero.
+- Four-piece bonus: sexual need increasingly occupies Cordelia's thoughts the longer the set is worn.
+- Beneficent Attire is reduced to outrageously minimal pieces that preserve item statistics while leaving nearly every sensitive area visible or immediately accessible.
+
+### Baal: choker
+
+- Disables all skills but does not impair speech.
+- The complete set continually heightens Cordelia's sensitivity and makes climax much harder to reach, producing prolonged denial without an orgasm counter or numerical release condition. A sufficiently overwhelming orgasm can still trigger the destructive release. Beneficent Attire reaches its final form: almost ceremonial nudity arranged for maximum exposure and access while all item statistics remain intact.
+
+## Boss Tone
+
+- Major act bosses are immortal, repeatedly respawned, and farmed to numb resignation. This makes the fight itself less operatic and more routine from their perspective.
+- They do not know about Cordelia's blessing. After she accepts the stopped-time alternative, they experience the same overwhelming attraction as other monsters and use her for their own satisfaction without understanding the mechanism or anticipating the explosion.
+- Their established personalities remain visible in how they use her: Andariel is imperious, Duriel brutally physical, Mephisto cruelly observant, Diablo possessive, and Baal theatrical. None of them discusses reward tables, encounter options, or Cordelia's release condition.
+
+## Final Resolution
+
+- Baal's defeat removes the blessing and dissolves every permanent piece. Cordelia's normal equipment, defenses, and magic return.
+- Having completed the ordeal without surrendering her agency, Cordelia inherits the ability to summon voluntary replicas of the jewelry. The summoned set recreates its arousal, restraint, attire, helplessness, stopped-time offers, and explosive releases only when she chooses to wear it. It may be dismissed again in safety.
+- Cordelia does not end with her friends as permanent dominants. They remain friends, with affection and attraction lightly present.
+- Cordelia decides to pursue a Holy Grail: every unique and set item in the game. She knowingly summons the jewelry, packs her Horadric Cube, and enters a waypoint in extreme heels. The hunt may take years; she expects to be entertained.
+
+## Post-Baal Continuation: Emily Vohl and the Fourth Discipline
+
+- **Rose Sentence mechanics:** The Rose does not hold its wearer indefinitely at the brink and participants do not need to stop stimulation before climax. The wearer's body passes through the normal physical buildup, contractions, and reset of orgasm, but the decisive pleasure is muted and drawn into the inscription. Immediate pressure subsides while satisfaction remains absent. The Rose preserves a heightened baseline of arousal and progressively increases sensitivity, so the wearer becomes receptive again with humiliating speed.
+- Each muted orgasm is conserved separately within the Rose. Continued stimulation through the contractions emphasizes the wearer's helplessness: she can be made to climax repeatedly without controlling or retaining her own pleasure. Her increasingly "slutty" responsiveness comes from constant arousal, desperation, and declining composure rather than personality corruption.
+- When the selected term expires, the Rose returns every stolen orgasm together in one cumulative release. A purchased early release also returns the accumulated pleasure; genuine distress ends the working safely and dissipates it instead. The original thirty-day Sentence surprises Cordelia with this mechanism while Kashya is stimulating her, producing a colossal orgasm around Kashya's hand and leaving Cordelia unable to walk normally for several days.
+- Cordelia may knowingly extend an active Sentence before expiration, but the Rose requires deliberate authorization. Extended denial should remain exceptional. As a series-level pacing rule, no denial term reaches three months; most are far shorter, and even forty-five days is an extreme ordeal justified only by active cultivation, trusted support, and a major objective.
+- Surviving Horadric records deliberately changed Emily Vohl into the fictitious male "Edran Vohl," reassigned her respectable discoveries, and presented the erotic work as one disgraced scholar's failure. Emily is a slender blonde woman and former Horadric prodigy. She considers the falsified record funny rather than traumatic.
+- Emily was expelled because her inventions distracted colleagues so thoroughly that ordinary academic work stopped while erotic experimentation and patent submissions flourished.
+- A spiritual-projection experiment accidentally erased Emily's permanent physical form. She now exists as an immortal, incorporeal spirit and enjoys the freedom. She can manifest a living body for several hours but has no desire to be cured.
+- Cordelia discovers Emily in a hidden fifth branch of the Arcane Sanctuary. They become friends united by the same hobby, occasionally with benefits, but not romantic partners. Emily remains a light, mischievous companion rather than a second emotional protagonist.
+- Emily unlocks the complete jewelry set's hidden Arcane discipline. The choker completes this circuit: when the full set is active, Cordelia exchanges ordinary elemental skills for Arcane magic fueled by sexual energy rather than mana.
+- Seeking Arcane Missiles are inexpensive and self-guiding. Arcane Explosion is a fast surrounding blast. Arcane Barrier grants brief invulnerability at a continuous cost. Arcane Blast delivers a powerful single-target critical strike. Time Manipulation freezes the world while Cordelia can move. Beneficent Cataclysm is the old orgasm-powered golden explosion under deliberate control.
+- Casting consumes stored sexual tension. The set replenishes it by increasing stimulation, sensitivity, exposure, denial, and restraint. It may defer the most distracting collection until danger ends, causing Cordelia to feel the accumulated cost immediately afterward. Mana and rejuvenation potions cannot repay this debt.
+- The complete set maintains only a modest combat reserve through low persistent stimulation. Once full, it settles to a simmer. Casting drains the reserve and causes aggressive collection until it refills. An ordinary orgasm spends part of the charge harmlessly; dismissing the set safely dissipates all remaining energy and prevents indefinite stockpiling.
+- Beneficent Cataclysm is controllable after Emily's instruction but cannot be cast casually. Cordelia must wear the complete set, accumulate a much larger reserve, reach orgasm, and consciously shape the release outward. Its strength is proportional to the sexual energy accumulated before release; extreme denial can drive it beyond Emily's ability to predict. Arming Cataclysm raises the reserve target and imposes sustained stimulation and denial. The legacy stopped-time encounter automates the final discharge only because accepting that encounter also authorizes Cataclysm.
+- Emily's Arcane unlock exposes a voluntary legacy-encounter mode in the complete set. Cordelia may consciously open it before lethal damage, allowing the set to redirect hostile murderous intent toward selfish erotic appetite without waiting for the stopped-time offer. It never activates from an accidental thought, arousal, proximity or merely wearing the set. Monsters remain unaware of the enchantment and act for their own gratification rather than helping Cordelia. Her private mental withdrawal remains available and closes the encounter immediately.
+- The Green Sentence begins and ends in one chapter. Cordelia accepts orgasm denial until she personally finds M'avina's True Sight, Griswold's Honor, and Cleglaw's Claw; the supposedly common final shield becomes the maddening holdout.
+- In the Burden of Charms, unidentified charms manifest as restraints whose severity reflects hidden value. One excellent skiller validates many terrible decisions.
+- In A Productive Day Off, Cordelia remains bound above the Lut Gholein sewers until sunset. Balancing upon bare tiptoes keeps the room dark; resting in the harness lights a dock-facing window and stimulates her.
+- In the High-Rune Stampede, every Cow Level death immediately transports Cordelia into one complete Whore-Maker session before resurrecting her at the portal. She ultimately recovers a Ber rune.
+- Emily possesses Cordelia for one consensually negotiated day in exchange for a Jah rune, provoking Charsi, Kashya, Atma, and Anya without revealing genuinely private experiences.
+- Cordelia drinks six improved Golden Bird elixirs, decides the sensitivity is manageable, then drinks the remaining six. All twelve permanently increase maximum life and sensitivity, greatly increasing both her Arcane potential and the jewelry's aftermath.
+- In the one-explosion treasury, only Beneficent Cataclysm can harm the guardians. Cordelia gathers the entire dungeon, accepts one final private encounter, destroys them, and finds Mang Song's Lesson.
+- Emily later manifests physically as Cordelia's sole mercenary and wears a replica set. Both women are caught in paired restraints, pressed tightly together, and brought to multiple orgasms before jointly discharging Cataclysm. Their bond remains playful friendship rather than romance.
+- The Eight-Foot Solution is canon and occurs before Uber Tristram. An old practicum curse requires Charsi, Kashya, Atma, and Anya to bring Cordelia to orgasm once each using only their feet. The episode establishes the women's practical familiarity with helping Cordelia through intimate magical accidents without changing their friendships into a permanent harem or romantic arrangement.
+- Deckard identifies the Pandemonium Event: three sets of Terror, Hate, and Destruction keys open the domains of Lilith, an empowered Duriel, and Izual; their organs open Uber Tristram. Its concentrated Prime Evils regenerate too quickly for an ordinary Cataclysm. Fara knows that a Paladin using Smite, Crushing Blow, and life stealing could defeat them efficiently, but refuses the absurd request to face all three.
+- To power a stronger Cataclysm, Cordelia accepts a forty-day Rose Sentence. Charsi, Kashya, Atma, and Anya repeatedly stimulate her through complete physical orgasms whose pleasure the Rose mutes and stores. Near the end of day thirty-nine, Emily judges the reserve probably sufficient but recommends five additional days for a safe margin against the Ubers' regeneration. Cordelia deliberately authorizes the extension, bringing the total to forty-five days. The final five days are exceptionally intense because Cordelia had already prepared herself for release and has become profoundly receptive; she complains, begs, and loves the chosen unfairness throughout.
+- Cordelia enters Uber Tristram alone, consciously opens the voluntary legacy-encounter mode and willingly offers herself to Mephisto, Diablo, and Baal together before lifting the denial. The resulting Cataclysm destroys all three and restores the pocket realm's buildings, earth, and water without resurrecting its dead. Cain is left simply amazed by the restoration. The Hellfire Torch rolls +3 Amazon skills, so Cordelia gives it to Kashya, the only Amazon-skill user in the group; Kashya thereafter wears it affectionately at her belt. Cordelia stores the useless Standard of Heroes and immediately begins planning another Uber Tristram run in hopes of rolling a Sorceress Torch.
+- The Replication Requirement is also canon and occurs near the end of the arc. Emily must manifest and be bound beside Cordelia; each of the four women gives both recipients one foot-only orgasm, producing eight required releases. These intimate interludes belong to the characters' continuing history even when later chapters do not explicitly revisit them.
+
+## Post-Baal Continuation: Zephira and Knots of Her Own
+
+- The arc is told in close third-person limited through Zephira, a deliberate viewpoint exception to Cordelia's usual narration. Cordelia's private thoughts are not narrated during this arc.
+- Zephira is an adult Askari Amazon and playable-class adventurer, not a Rogue under Kashya's command. She is independent, capable, fond of drinking and gambling, casually attracted to women, and prone to accepting mercenary work that supports an itinerant life.
+- She is tall, powerful and athletic, with sun-browned skin, broad shoulders, a taut waist, muscular thighs and calves, small travel scars, strong callused hands and feet, thick dark-auburn hair normally braided, amber-brown eyes, high cheekbones, a strong nose, expressive brows and a crooked grin. Bondage never makes her strength disappear; its appeal lies partly in displaying that strength while making it useless.
+- Zephira does not psychoanalyze her attraction to self-bondage. She feels cute, sexy and intensely aroused when rope or enchanted equipment arranges her into helpless positions, and considers that sufficient explanation. The reader may recognize private vulnerability without forcing Zephira to articulate it.
+- The arc's erotic center is bondage rather than orgasm: rope texture and pattern, tightening pressure, posture, suspension, balance, waiting, exposure, lost leverage and the contrast between Zephira's capable body and voluntary immobility. Orgasms occur organically but are neither tallied nor treated as the purpose of every session.
+- Zephira discovers a minor Vohl restraint during ordinary adventuring, then procures and privately tests related equipment between mercenary jobs, shopping, gambling, drinking and other daily life. The relaxed post-Baal atmosphere remains present around every major bondage sequence.
+- Cordelia and Emily accidentally find Zephira while following an artifact signature. They track the Vohl object, not Zephira. Emily immediately announces and introduces herself; neither woman spies. Cordelia offers release, respects Zephira's refusal and leaves a dormant calling charm with her consent.
+- The charm performs no surveillance and reports no passive location or condition. It activates only when Zephira sincerely directs an attempt to communicate outward to anyone at all; it then carries that call and her current location to Cordelia.
+- Zephira later mistakes an ancient duration setting and orders a four-week session instead of four hours. The artifact functions exactly as instructed. The stakes are prolonged hunger, thirst, cramping, exposure, frustration, lost time and the humiliation of requesting help, not permanent death; ordinary death and resurrection remain available facts of this alternate Sanctuary, so no elaborate medical safeguards are introduced.
+- Zephira eventually reaches outward, activating the charm. Cordelia releases and cares for her without ridicule or erotic opportunism. When Zephira asks how she was found, Cordelia answers, "You asked me to."
+- In a later solo session, Zephira deliberately tells Cordelia where she will be while asking her not to attend. Knowing that a trusted woman knows she is helpless intensifies the private experience. This expands rather than replaces Zephira's preference for solitary play.
+- Zephira eventually invites Cordelia to witness and improvise within a self-authored framework. Later, Cordelia joins her: both women design and lock their own restraints, leaving two capable adventurers helpless by their shared design. Emily participates openly and only when expected, adding enchantments and complications without spying.
+- Cordelia, Emily and Zephira are friends who may share benefits, not a permanent romance or hierarchy. Zephira remains the architect of her scenarios; Cordelia supplies playful improvisation, and Emily supplies magical elaboration.
+- Kashya has never practiced self-bondage and never participates as a submissive. She may observe, imagine, feel aroused and remain curious without progressing toward enactment. Her fantasy-without-participation is a complete preference, not repression awaiting persuasion. Her reactions appear naturally within other chapters rather than as a dedicated experiment.
+- The arc runs ten substantial chapters and ends with Zephira pursuing another rumored restraint artifact. She carries Cordelia's dormant charm by choice and continues deciding separately whether each new experiment belongs to solitude or companionship.
+
+## Quest Map
+
+1. Den of Evil — arrival, character and camp rapport; ordinary victory.
+2. Sisters' Burial Grounds — Blood Raven; ordinary victory; Kashya rapport.
+3. Search for Cain — accidental Cairn-Stone activation; first Fallen capture after lethal damage; Cain rescued.
+4. Forgotten Tower — Countess; aristocratic restraint and controlled denial; first stronger admission of curiosity.
+5. Tools of the Trade — the Smith; rough forge restraint and unmistakable penetration; Charsi's reaction to the aftermath.
+6. Sisters to the Slaughter — relaxed Andariel encounter; nipple rings and Beneficent Attire.
+7. Radament's Lair — living burial, wrappings, ritual vessel, penetration, edging.
+8. Horadric Staff — Maggot Queen resin restraint and brood-vessel fantasy.
+9. Tainted Sun — serpent coils, sensitivity venom, staged anal training.
+10. Arcane Sanctuary — palace/harem display, group service, oral training.
+11. The Summoner — obedient apprentice role, magical bondage, command and release.
+12. Seven Tombs — Duriel's weary boss encounter; rough endurance; bracelets.
+13. Golden Bird — gilded display, living vines, breast play, dollification.
+14. Blade of the Old Religion — cult offering, altar restraint, humiliating title.
+15. Khalim's Will — web suspension, nipple-focused play, breast-driven release.
+16. Lam Esen's Tome — Battlemaid Sarina, commands, punishing posture, selective foot teasing.
+17. Blackened Temple — Council judgment, marks, formal degradation, multi-partner service.
+18. The Guardian — Mephisto's dry psychological insight; exposed honesty; ankle chains and heels.
+19. Fallen Angel — barefoot suspension on tiptoe, foot teasing, guided footjob, Izual finishes across Cordelia's feet.
+20. Hell's Forge — Hephasto treats Cordelia as equipment; mechanical stimulation, clamps, heat, temporary maker's mark.
+21. Terror's End — relaxed Diablo; Cordelia rides him in stockings and punishing heels with her hands bound, finally admitting she needs orgasm for herself; clitoral ring.
+22. Siege on Harrogath — siege-trophy display, engine-assisted edging, Shenk.
+23. Rescue on Mount Arreat — prisoners rescued first; private cage-and-obedience encounter after covering their escape.
+24. Prison of Ice — Frozenstein side cavern; immobilized ice display, temperature play, controlled anal stimulation.
+25. Betrayal of Harrogath — Nihlathak's Corpse Explosion converted into a full-body orgasm; he sees Cordelia exposed, has a heart attack, and dies without touching her.
+26. Rite of Passage — the adult ancestral warriors' endurance trial; sequential and combined use; Cordelia yields physically but not in purpose.
+27. Eve of Destruction — farm-weary Baal and duplicates; relaxed, prolonged denial culminating in one final overwhelming release; Baal and the curse destroyed.

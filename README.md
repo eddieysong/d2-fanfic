@@ -7,9 +7,12 @@ A chronological reading archive for an explicit adult *Diablo II* alternate-univ
 1. **The Core Journey** — 27 quest chapters and an epilogue covering Acts I–V.
 2. **After the Worldstone** — “A Small Personalization” followed by the five Lost Horadrim stories.
 3. **The Fourth Discipline** — thirteen Grail adventures with Emily Vohl and Cordelia’s Arcane jewelry.
-4. **The Beneficent Archives** — “The Intended Effects” and “Commission and Command.”
+4. **Knots of Her Own** — ten adventures following Zephira’s discovery of magical self-bondage.
+5. **The Beneficent Archives** — “The Intended Effects” and “Commission and Command.”
 
 The source stories live in `content/`. `npm run content` splits the core manuscript into individual reading entries and builds the chronological library used by the site.
+
+Continuity, characterization, magic mechanics, and prose guidance are maintained in the [story bible](docs/story-bible.md).
 
 ## Development
 
