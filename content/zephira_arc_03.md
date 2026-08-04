@@ -94,7 +94,7 @@ Cordelia studied her. Not suspiciously, not searching for a hidden confession Ze
 
 "We will. Before sunset."
 
-Zephira selected another date because her hands required occupation. Cordelia's knowledge of where she had played last time had made the solitude sharper and sweeter. This invitation was different. Someone would see the preparation, the moment when Zephira's own capable fingers made themselves useless and the expressions she usually allowed no mirror to keep. The thought tightened pleasantly beneath her waist.
+Zephira selected another date because her hands required occupation. Cordelia's knowledge of where she had played last time had made the solitude sharper and sweeter. This invitation was different. Someone would see the preparation, the moment when Zephira's own capable fingers made themselves useless and the expressions she usually allowed no witness to see. The thought tightened pleasantly beneath her waist.
 
 She did not intend to inspect why.
 
@@ -742,7 +742,7 @@ Cordelia tried to lean back. The linked line held her. Zephira tested the same r
 
 "I did not invite judgment."
 
-They found a slow mutual sway. Cordelia's breasts moved against Zephira's with every pass, soft weight constrained by ivory bands. Zephira's nipples rubbed through the thin red covering until Cordelia hooked the edge with her chin and tugged it downward. The garment slid beneath the rope.
+They found a slow mutual sway. Cordelia's breasts moved against Zephira's with every pass, soft weight constrained by ivory bands. Zephira's nipples rubbed through the thin red covering until Cordelia caught the loosened upper edge carefully between her teeth and drew it downward. The garment slid beneath the rope.
 
 "That was not self-inflicted," Zephira said.
 
