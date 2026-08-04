@@ -22,7 +22,7 @@ The merchant looked past her shoulder as though the relevant camel might be wait
 
 Across the narrow lane, Cordelia lowered her cup to hide a smile. It did not work particularly well. She sat beneath the shade of a wine seller's striped canopy, long bronze legs crossed beneath a pale traveling skirt and heavy black hair braided high against the heat. No jewelry was visible except the ordinary gold at her ears. Emily floated beside her, unseen by everyone else in the market and sitting backward through a chair which could not support her.
 
-Zephira straightened. Her faded red sash moved against one taut hip in the harbor breeze. She wore no sleeves and little armor in the city, only a fitted leather vest, loose sand-colored trousers and travel sandals which showed feet kept cleaner than the rest of her equipment suggested. A small scar crossed the outside of her left thigh where the cloth slit for movement. Another marked the round of one shoulder. Her dark-auburn braid was thick as a rope in its own right and had already begun to shed strands around a face too strong to be called delicate: high cheekbones, a straight prominent nose, dark expressive brows and amber-brown eyes presently narrowed at commerce.
+Zephira straightened. Her faded red sash moved against one rounded hip in the harbor breeze. She wore no sleeves and little armor in the city, only a fitted leather vest, loose sand-colored trousers and travel sandals which showed feet kept cleaner than the rest of her equipment suggested. A small scar crossed the outside of her left thigh where the cloth slit for movement. Another marked one shoulder. Her golden-blonde braid was thick as a rope in its own right and had already begun to shed sun-bleached strands around a classically Askari face: high cheekbones, a straight prominent nose, dark expressive brows and sea-green eyes presently narrowed at commerce.
 
 "Eight hundred," said the merchant.
 
@@ -48,7 +48,7 @@ The bargaining occupied long enough for Cordelia to finish her wine and Emily to
 
 "He remembers the buckle," Emily said.
 
-Zephira dropped into the remaining chair. Her muscular thighs stretched the loose fabric when she sat; the new rope occupied her lap like an exceptionally well-behaved pale snake. "The buckle remembers him too. It still won't close within fifty paces of his shop."
+Zephira dropped into the remaining chair. Her strong thighs stretched the loose fabric when she sat; the new rope occupied her lap like an exceptionally well-behaved pale snake. "The buckle remembers him too. It still won't close within fifty paces of his shop."
 
 Cordelia examined the copied runes. "You know that is load-responsive."
 
@@ -148,11 +148,11 @@ Zephira tried to look offended by this misuse of an evening and found herself gr
 
 Zephira knelt upon the mat.
 
-Preparation settled her more completely than meditation ever had. She fed the pale rope through the first tension ring and drew it around her waist, feeling the silk core accept her warmth. Two turns framed the taut plane of her stomach. A third passed low over her hips. She crossed the ends behind her, brought them forward beneath her breasts and made a diamond pattern over the bandeau, each line emphasizing rather than hiding the muscular femininity beneath it.
+Preparation settled her more completely than meditation ever had. She fed the pale rope through the first tension ring and drew it around her waist, feeling the silk core accept her warmth. Two turns framed the taut plane of her stomach. A third passed low over her hips. She crossed the ends behind her, brought them forward beneath her breasts and made a diamond pattern over the bandeau, each line emphasizing rather than hiding the soft athletic femininity beneath it.
 
 She watched herself in the mirror.
 
-The Amazon in the glass remained broad-shouldered and battle-hardened. Rope did not make her smaller. It drew attention to every place strength lived: the back held straight by the chest harness, the firm abdomen between crossings, the thighs spread for balance. Yet the pale pattern was pretty. Deliberately pretty. Zephira's strong fingers adjusted one turn by the width of a nail until the symmetry satisfied her.
+The Amazon in the glass remained statuesque and unmistakably battle-trained. Rope did not make her smaller. It drew attention to every place strength lived: the long back held straight by the chest harness, the firm abdomen between crossings, the powerful thighs spread for balance. It also settled gently into every softer curve, letting breast, waist and hip yield around the pattern without pain. The effect was pretty. Deliberately pretty. Zephira's callused fingers adjusted one turn by the width of a nail until the symmetry satisfied her.
 
 "You could say it," Cordelia offered.
 
@@ -320,7 +320,7 @@ Cordelia alternated touch with waiting. Sometimes she tightened a line for sever
 
 The exposure changed nothing about the restraint and everything about being witnessed.
 
-Zephira's breasts were smaller than Cordelia's, firm upon the broad athletic plane of her chest, their nipples a deep warm brown already swollen by friction. Pale rope curved beneath them and crossed above. Her arms remained drawn behind her, making it impossible to cover herself or adjust the cloth now gathered at her ribs.
+Zephira's breasts were somewhat smaller than Cordelia's but still full, their athletic firmness softened by natural weight and their nipples a deep warm brown already swollen by friction. Pale rope curved beneath them and crossed above, settling just enough for warm flesh to rise around the lines. Her arms remained drawn behind her, making it impossible to cover herself or adjust the cloth now gathered at her ribs.
 
 "Still within the plan?" Cordelia asked.
 
@@ -370,7 +370,7 @@ Release approached without becoming the session's purpose. Zephira noticed it as
 
 Zephira's bound hands tightened. Her strong back flexed beneath the harness. She looked in the mirror because Cordelia turned her chin and because she wanted to see.
 
-The woman reflected there was flushed, sweating and gloriously incapable. Dark-auburn hair had escaped around her cheeks. Her full mouth had lost its crooked confidence and remained parted around shallow breaths. Rope decorated the body of a warrior without disguising what it had made of her. Cordelia knelt beside her, one hand on an exposed breast and the other hidden between open thighs, but the locks were Zephira's. The knots were Zephira's. The helplessness was Zephira's work.
+The woman reflected there was flushed, sweating and gloriously incapable. Golden-blonde hair had escaped around her cheeks. Her full mouth had lost its crooked confidence and remained parted around shallow breaths. Rope decorated the soft athletic body of a warrior without disguising what it had made of her, each flat line pressing a little way into warm skin. Cordelia knelt beside her, one hand on an exposed breast and the other hidden between open thighs, but the locks were Zephira's. The knots were Zephira's. The helplessness was Zephira's work.
 
 Orgasm passed through her slowly. Her thighs strained against their lines. The rope around her torso contracted with every helpless arch, pressing silk across nipples already held beneath Cordelia's palm. Her hips moved as much as the apparatus allowed, no more than a few desperate inches. Pleasure tightened deep within her and spread outward through abdomen, breasts, bound wrists and pointed feet.
 
@@ -430,7 +430,7 @@ Emily rejected the third because neither woman was suspended upside down.
 
 They sat around a scarred table in the Rogue Encampment, surrounded by enough rope, buckles and silver fittings to alarm anyone who believed the word *camp* implied military purpose. Charsi had loaned them the back corner of her workshop after extracting three assurances that nothing would pull upon the roof supports. Rain moved softly over the patched leather above. The forge colored the air orange and warmed the pot of cider balanced near its edge.
 
-Zephira leaned over the third diagram. Her braid lay across one broad shoulder, still damp from morning drills. She had spent those drills correcting the stance of two young Rogues who regarded an Amazon as a visiting encyclopedia of glamorous violence. Then she had lost an archery contest to Kashya by one arrow, disputed the wind and arrived at Charsi's forge carrying a rolled carpet which proved to contain twenty-seven pieces of bondage equipment.
+Zephira leaned over the third diagram. Her braid lay across one sun-bronzed shoulder, still damp from morning drills. She had spent those drills correcting the stance of two young Rogues who regarded an Amazon as a visiting encyclopedia of glamorous violence. Then she had lost an archery contest to Kashya by one arrow, disputed the wind and arrived at Charsi's forge carrying a rolled carpet which proved to contain twenty-seven pieces of bondage equipment.
 
 It had been a productive day.
 
@@ -452,7 +452,7 @@ Cordelia took the charcoal. "The problem is release authority. If either of us c
 
 "That is also not the design."
 
-Zephira looked toward the paired harnesses laid over Charsi's bench. One was pale desert silk sized to the stronger breadth of her shoulders and compact athletic torso. The other was black, made of Cordelia's Penitent Coil after the intelligent artifact had agreed to suspend its therapeutic ambitions for one evening. Two lengths met in a silver relay no larger than a coin.
+Zephira looked toward the paired harnesses laid over Charsi's bench. One was pale desert silk sized to her graceful shoulders and long-waisted, softly athletic figure. The other was black, made of Cordelia's Penitent Coil after the intelligent artifact had agreed to suspend its therapeutic ambitions for one evening. Two lengths met in a silver relay no larger than a coin.
 
 The answer arrived with embarrassing simplicity.
 
@@ -606,7 +606,7 @@ Zephira secured her ankles to a spreader line that kept her knees apart when kne
 
 They sat back-to-back.
 
-Cordelia's warmth met Zephira from shoulder to hip. Their hair mingled briefly, black against dark auburn, before Emily separated it from the mechanisms. Zephira secured her own left wrist behind her. Cordelia secured her own right. Each retained one free hand and held the other woman's open cuff.
+Cordelia's warmth met Zephira from shoulder to hip. Their hair mingled briefly, black against golden blonde, before Emily separated it from the mechanisms. Zephira secured her own left wrist behind her. Cordelia secured her own right. Each retained one free hand and held the other woman's open cuff.
 
 The sandglass above them remained dark.
 
@@ -676,7 +676,7 @@ Cordelia gasped as the Coil pulled.
 
 "What?" Zephira asked. "I was tired."
 
-Cordelia returned the motion with interest. Pale rope tightened beneath Zephira's breasts and drew her broad shoulders forward. Her bound arms lifted. The posture displayed the athletic line of her body, taut stomach lengthened between waist harness and open thighs.
+Cordelia returned the motion with interest. Pale rope tightened beneath Zephira's breasts and drew her strong shoulders forward. Her bound arms lifted. The posture displayed the athletic line of her body, taut stomach lengthened between waist harness and open thighs.
 
 "Then rest," Cordelia said.
 
@@ -728,7 +728,7 @@ Three feet became two, then one. Their knees remained held apart within separate
 
 Their breasts touched.
 
-Cordelia's fuller curves compressed softly against Zephira's firmer chest. Rope lay between them, pale and ivory crossings rubbing skin wherever breathing moved one body against the other. Their exposed nipples met imperfectly through the patterns, each small shift dragging sensitive flesh over silk and warm bronze skin.
+Cordelia's fuller curves compressed softly against Zephira's athletic softness. Rope lay between them, pale and ivory crossings pressing shallow channels into both bodies and rubbing skin wherever breathing moved one woman against the other. Their exposed nipples met imperfectly through the patterns, each small shift dragging sensitive flesh over silk and warm bronze skin.
 
 Zephira's grin became unsteady. "This was in the definition?"
 
@@ -902,7 +902,7 @@ They threw cushions through her until she agreed to move the tray by magic.
 
 At breakfast, Zephira discovered that six hours of beautifully distributed weight remained six hours of weight.
 
-She approached the campfire with the measured stride of a woman refusing to acknowledge her inner thighs. Cordelia walked beside her with equal dignity and marginally greater success. Both had bathed, dressed and restored their hair to forms acceptable in daylight. Zephira wore leather trousers, a sleeveless tunic and her thick dark-auburn braid down her back. Cordelia had chosen a blue traveling robe whose generous sleeves concealed the temporary bands around her wrists.
+She approached the campfire with the measured stride of a woman refusing to acknowledge her inner thighs. Cordelia walked beside her with equal dignity and marginally greater success. Both had bathed, dressed and restored their hair to forms acceptable in daylight. Zephira wore leather trousers, a sleeveless tunic and her thick golden-blonde braid down her back. Cordelia had chosen a blue traveling robe whose generous sleeves concealed the temporary bands around her wrists.
 
 Nothing concealed how carefully they sat.
 
@@ -950,7 +950,7 @@ Kashya unfolded the scout's map upon the table.
 
 "A pack has occupied the old chapel north of the road," she said. "Not Blood Raven's dead. Living deserters, perhaps twenty. They've attacked two patrols and taken supplies."
 
-Zephira's attention changed. The lazy amusement remained in her mouth but left her posture. She leaned over the map, amber-brown eyes moving between marked trails. "They chose high ground and one narrow stair."
+Zephira's attention changed. The lazy amusement remained in her mouth but left her posture. She leaned over the map, sea-green eyes moving between marked trails. "They chose high ground and one narrow stair."
 
 "Yes."
 
@@ -984,7 +984,7 @@ Cordelia's eyes narrowed.
 
 The bounty began an hour later beneath a clean autumn sky. Zephira went ahead of the Rogue patrol, moving through wet grass with a spear across her shoulders and a short bow at her back. The previous night's restraint lived in her muscles as a warm complaint, but motion gradually worked it loose. By the time the ruined chapel appeared between yellowing trees, her stride had recovered its ordinary confidence.
 
-This was the body she knew without mirrors: strong lungs, sure feet, hands comfortable around a weapon. She could read ground at a glance and judge the direction of an unseen archer from the angle at which birds left a tree. Nothing soft or helpless had replaced those facts. Pale rope marks beneath her tunic did not contradict them either.
+This was the body she knew without mirrors: strong lungs, sure feet, hands comfortable around a weapon. She could read ground at a glance and judge the direction of an unseen archer from the angle at which birds left a tree. The softness visible at the surface of that body had never contradicted its capability, and chosen helplessness had replaced none of it. Pale rope impressions beneath her tunic belonged to the same whole.
 
 She simply enjoyed more than one use for strength.
 
@@ -1160,7 +1160,7 @@ Kashya drank without explanation.
 
 Elzix had not changed his dice.
 
-Zephira knew this. She sat at his back table anyway, amber eyes narrowed over three ivory cubes while the innkeeper leaned comfortably upon the opposite chair. Cordelia watched with the resignation of a scholar observing a repeatable natural disaster. Charsi placed one small wager and won. Kashya did not gamble, which allowed her to look morally superior while drinking the wine purchased with Charsi's winnings.
+Zephira knew this. She sat at his back table anyway, green eyes narrowed over three ivory cubes while the innkeeper leaned comfortably upon the opposite chair. Cordelia watched with the resignation of a scholar observing a repeatable natural disaster. Charsi placed one small wager and won. Kashya did not gamble, which allowed her to look morally superior while drinking the wine purchased with Charsi's winnings.
 
 "Double," Zephira said.
 
@@ -1372,7 +1372,7 @@ Before dawn on the third morning, the women gathered at the dock.
 
 The *Unquestionable Judgment* moved gently against its lines. Its single triangular sail waited furled. Sailors carried aboard provisions, weapons and one equipment chest whose weight caused two of them to exchange professional looks.
 
-Zephira wore travel leathers, bronze shoulder guards and the faded red sash tied around her waist. Her strong legs were braced against the moving pier; the sea wind tugged loose auburn strands around her face. Spear, bow and quiver lay across her pack. The new desert silk had been coiled inside, along with the two-lock relay and enough smaller devices to make customs inspection a theological hazard.
+Zephira wore travel leathers, bronze shoulder guards and the faded red sash tied around her waist. Her strong legs were braced against the moving pier; the sea wind tugged loose blonde strands around her face. Spear, bow and quiver lay across her pack. The new desert silk had been coiled inside, along with the two-lock relay and enough smaller devices to make customs inspection a theological hazard.
 
 Cordelia arrived dressed for travel, Horadric Cube at one hip and Grail ledger protected in waxed leather. Emily floated beside her in brighter definition than the dawn, openly expected by both travelers even if the sailors could not see her.
 
