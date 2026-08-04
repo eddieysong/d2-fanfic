@@ -23,10 +23,10 @@ test("renders the chronological archive index", async () => {
   assert.match(html, /The complete reading order/);
   assert.match(html, /The Core Journey/);
   assert.match(html, /After the Worldstone/);
-  assert.match(html, /The Fifth Discipline/);
+  assert.match(html, /The Fourth Discipline/);
   assert.match(html, /The Beneficent Archives/);
   assert.match(html, /View the gallery/);
-  assert.match(html, /<strong>49<\/strong>\s*entries/);
+  assert.match(html, /<strong>50<\/strong>\s*entries/);
   assert.doesNotMatch(html, /codex-preview|SkeletonPreview|Your site is taking shape/);
 });
 

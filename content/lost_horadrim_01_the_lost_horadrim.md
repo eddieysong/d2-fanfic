@@ -172,13 +172,13 @@ No single knot interested Cordelia as much as that intelligence. The Coil unders
 
 Cain moved his finger down the page with more force than necessary.
 
-The second artifact was not an object but a rune called the Rose Sentence. Invocation fused it into the wearer's skin as a pink tattoo low upon the abdomen. The wearer selected a term in advance. Until that term expired, orgasm became impossible regardless of stimulation, pleading or private ingenuity. Desire and sensitivity increased rather than diminished, ensuring the sentence grew more difficult with time.
+The second artifact was not an object but a rune called the Rose Sentence. Invocation fused it into the wearer's skin as a pink tattoo low upon the abdomen. The wearer selected a term in advance. Her body could still be driven through the physical completion of orgasm, but the pleasure itself would be muted at the decisive instant and drawn into the inscription. The bodily pressure would reset; satisfaction would not. Desire and sensitivity increased rather than diminished, ensuring that she recovered with humiliating speed and that every subsequent theft became easier to provoke. The surviving description stated that the stolen pleasure was *conserved*, but the final clause explaining its disposition had been lost with the lower corner of the page.
 
 Cordelia read the paragraph herself.
 
 "There is an early-release provision," she observed.
 
-"A deliberately expensive one. The rune distinguished true withdrawal from frustration. Genuine distress ended the working. A wearer who still wanted the sentence but wished to purchase relief from her own impatience had to sacrifice a rune of value proportionate to the remaining term."
+"A deliberately expensive one. The rune distinguished true withdrawal from frustration. Genuine distress ended the working safely. A wearer who still wanted the sentence but wished to purchase satisfaction from her own impatience had to sacrifice a rune of value proportionate to the remaining term."
 
 A table survived. One day required a Lem. A week required a Gul. One month required a Cham.
 

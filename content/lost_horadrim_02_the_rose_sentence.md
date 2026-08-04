@@ -1,6 +1,6 @@
 # The Rose Sentence
 
-The rune was prettier than anything designed to prevent an orgasm for thirty days had a right to be.
+The rune was prettier than anything designed to steal orgasms for thirty days had a right to be.
 
 It lay upon a black stone lectern in an annex of the Arcane Sanctuary. Vohl's chamber waited beyond impossible paths and a wall which appeared only when approached backward while holding a flawless amethyst.
 
@@ -10,9 +10,9 @@ There were no guardians inside. No final trap. Edran Vohl had apparently trusted
 
 Cordelia translated it aloud.
 
-"Invocation binds the selected term. Desire shall accumulate. Sensitivity shall be preserved and increased. Completion shall remain inaccessible until the sentence is served."
+"Invocation binds the selected term. Desire shall accumulate. Sensitivity shall be preserved and increased. Completion shall be taken, muted and conserved until the sentence is served."
 
-She read it again. Old Horadric allowed enough ambiguity that a careless scholar might mistake *completion* for *fulfillment*, which would produce a very different month.
+She read it again. Old Horadric allowed enough ambiguity that a careless scholar might mistake *completion* for *fulfillment*, or *conserved* for *contained*. The lower corner of the warning had broken away immediately after a conjunction which might have explained what eventually became of anything conserved.
 
 "It would be embarrassing to endure something adjacent," she decided.
 
@@ -22,7 +22,7 @@ One day cost a Lem. One week, a Gul. One month, a Cham.
 
 A smaller line beneath the price table recommended that an initial experiment not exceed one day.
 
-One day would tell Cordelia only that she could postpone an orgasm until tomorrow. She had done that accidentally. A week was insufficient for serious research. Three weeks felt like an arbitrary compromise.
+One day would tell Cordelia only that she could be denied until tomorrow. She had accomplished that accidentally. A week was insufficient for serious research. Three weeks felt like an arbitrary compromise.
 
 One month was a pleasingly complete mistake.
 
@@ -69,13 +69,15 @@ Nothing prevented pleasure. That was Vohl's first cruelty.
 
 Her clitoris responded almost at once beneath practiced fingers. Cordelia opened her legs wider and stroked herself with increasing certainty, gathering sensation in the familiar manner. Pleasure climbed. Her breath shortened; her hips began to move; the tent and rain and distant voices around the camp receded.
 
-At the point where her body should have crossed into orgasm, the pink rune warmed.
+At the point where her body crossed into orgasm, the pink rune warmed.
 
-The rising peak did not collapse. It simply extended before her, perfectly present and impossible to reach. Every pulse gathered beneath it. Cordelia stroked faster. Her thighs trembled. Wetness shone across her fingers. She could feel the orgasm which ought to happen as clearly as a spell held at the instant before release, except no act of will completed it.
+The physical response happened. Her hips lifted, her thighs closed around her wrist and the muscles inside her contracted with the familiar rhythm of release. Pleasure rose with them—and then became distant. The peak was muffled at the decisive instant, reduced to the pale outline of what it should have been while a vivid current of pink light flowed from her clitoris into the rose.
 
-She tried for several minutes longer because persistence was a virtue frequently praised by people who had never met Edran Vohl.
+Cordelia kept stroking because stopping had not caused the theft and persistence was a virtue frequently praised by people who had never met Edran Vohl. Her body finished its contractions beneath her hand. The exquisite pressure which had driven her to the brink receded as it ordinarily did after orgasm, but none of the satisfaction arrived with it. She had been physically reset and emotionally cheated.
 
-At last Cordelia stopped. Her body remained tight and restless beneath her hand. The rune's rose had grown a third leaf.
+The underlying heat remained. Worse, the loss itself excited her: the helpless obscenity of having reached completion without being permitted to possess it, of feeling her own pleasure leave her body and brighten an artifact she had fastened there willingly. Before her breathing had fully steadied, her sensitive flesh was already asking to be touched again.
+
+The rune's rose had grown a third leaf.
 
 "Very good," she whispered, though the artifact had not requested evaluation.
 
@@ -117,7 +119,7 @@ The armor did. So did everything else.
 
 Cordelia continued Grail runs without the voluntary jewelry; testing a battle alternative which required an impossible orgasm would be poor research and worse planning. Even ordinary combat fed the rune. She returned from every run with the rose brighter and the need between her thighs less willing to be ignored.
 
-On the seventh night she tested it again with warm oil, patient fingers and a polished wand which possessed no enchantment beyond excellent craftsmanship. The Sentence allowed pleasure to gather for an hour and every contraction except the resolving ones. When Cordelia finally withdrew the wand, her vagina clenched around emptiness and the pink lines at her hips had lengthened like vines watered by frustration.
+On the seventh night she tested it again with warm oil, patient fingers and a polished wand which possessed no enchantment beyond excellent craftsmanship. She drove herself through one muted climax, kept the wand inside while the contractions faded, and began again as soon as the Rose's preserved arousal made her body receptive. The second theft came more quickly. The third required almost no patience at all. Each one relieved the immediate physical pressure while leaving her desire untouched and her satisfaction shining somewhere outside herself. When Cordelia finally withdrew the wand, her vagina clenched around emptiness and the pink lines at her hips had lengthened like vines watered by frustration.
 
 One month, she decided after a sleepless interval, remained manageable.
 
@@ -172,9 +174,9 @@ She walked away before Cordelia could decide whether the promise had been intent
 
 The Sentence thinned the distance between wanting and admitting what she wanted. No demon died when she endured another day. Her only victory was keeping faith with a decision made because prolonged denial had excited her.
 
-By the seventeenth day, she had stopped testing whether orgasm remained impossible. The answer was established. She touched herself because stopping felt worse.
+By the seventeenth day, she had stopped testing whether satisfaction remained inaccessible. The answer glowed across both hips. She touched herself because stopping felt worse and because every stolen climax made the next one humiliatingly easy.
 
-She learned to sustain a plateau without exhausting herself: careful circles around her clitoris, a thumb over one nipple, the smooth wand held inside while she read. None brought relief. All left something behind.
+She learned to endure the strange cycle without exhausting herself: careful circles around her clitoris, a thumb over one nipple, the smooth wand held inside while she read. Her body would tighten, contract and briefly soften. The pleasure would vanish into the Rose. Within minutes the preserved arousal would gather beneath her skin again, sharpened by the knowledge that she no longer controlled what happened to anything her own body produced. None of the muted orgasms brought relief. All left something behind.
 
 The rose spread until fine pink branches framed the dark hair above her sex and curved across both hips. Under ordinary light it remained a delicate tattoo. When arousal rose, it shone through fabric, illuminating every place her clothing had become damp.
 
@@ -184,7 +186,7 @@ This deception fooled nobody.
 
 On the twentieth night, Cordelia dreamed of being bound beneath the Cairn Stones while Kashya held a Cham rune just beyond reach. She offered treasure, obedience and finally her mouth. Kashya closed one cool fist around the rune and told her that desperation was not currency.
 
-Cordelia awakened at the edge of orgasm, the rose blazing across her hips and her drenched fingers working helplessly between her thighs. The Sentence stopped her with exquisite completeness. She made a sound into her pillow which would have alarmed the camp if the rain had not been heavy.
+Cordelia awakened in the middle of a physical orgasm, the rose blazing across her hips and her drenched fingers working helplessly between her thighs. Her vagina contracted; her back arched; the pleasure disappeared so completely that her cry became one of wounded disbelief. A moment later her body subsided while the need remained, already turning the theft itself into another source of arousal. She made a sound into her pillow which would have alarmed the camp if the rain had not been heavy.
 
 Then she remembered the rune chest.
 
@@ -421,7 +423,7 @@ After the meal Kashya released one cuff at a time, checked circulation and made 
 
 Cordelia wanted them to.
 
-"The sentence prevents orgasm," she said when the cuffs went on again. "It does not prohibit stimulation."
+"The sentence steals the orgasm," she said when the cuffs went on again. "It does not prohibit stimulation."
 
 "I know."
 
@@ -582,89 +584,55 @@ The command lowered Cordelia to her knees more effectively than force.
 
 ## Day Thirty
 
-The Sentence ended at sunrise.
+An hour remained before sunrise when Kashya opened the cage.
 
-No bell rang. No stored orgasm seized Cordelia. The rose simply reached completion.
+She released Cordelia's cuffs, checked both wrists and left the door standing open while circulation returned. Freedom waited no farther away than the threshold. Cordelia could leave, teleport to Charsi's forge and begin converting a fortune into mercy before the term expired. She could also remain inside the month she had chosen.
 
-Pink light filled every line across her abdomen, brilliant enough to throw the pattern of the cage against the opposite wall. For one suspended instant Cordelia felt the entire month at once: every abandoned climax, every remembered touch, every night spent aching beneath her own hand, every refusal from Charsi and Kashya, every hour in which desire had accumulated without finding an end.
+Cordelia stretched her aching shoulders, drank the water Kashya offered and placed her wrists together again behind her back.
 
-Then the prohibition opened.
-
-The arousal remained.
-
-Cordelia gasped and folded forward on her knees. Her clitoris throbbed untouched. Her vagina contracted around nothing with such force that wetness slipped down one inner thigh. She could come now. The knowledge was almost a sensation in itself.
-
-Kashya was already standing.
-
-She crossed the chamber, unlocked the cage and opened its door fully. Then she entered only far enough to release the cuffs. Leather fell from Cordelia's wrists. Kashya backed away.
-
-No sexual touch had passed between them.
-
-The open doorway waited.
-
-"The sentence is served," Kashya said. Her voice was rougher than command preferred. "You are free to go."
-
-Cordelia brought both hands forward. Red pressure marks circled her wrists above the protective cloth, temporary and warm. She could touch herself. She could teleport to her tent, close the flap and claim the orgasm privately. She could thank Kashya, collect her high runes from Charsi and preserve whatever simpler friendship they had possessed three days earlier.
-
-Instead Cordelia crawled out of the cage.
-
-She stopped at Kashya's boots and looked up.
-
-The commander's face revealed very little. Her eyes revealed enough.
-
-"I want you," Cordelia said.
-
-"The rune is finished."
+Kashya looked at them. "The sentence does not require this."
 
 "I know."
 
-"You are no longer bound."
+"Nor does it require me."
 
-"I know."
+"I know that too."
 
-"Then ask without using either as an excuse."
+The commander remained still, keys in one hand and the open doorway beside her. Cordelia had spent three days trying to make that composure break. Now that it might, embarrassment returned with startling force.
 
-Cordelia rose upon unsteady legs. She stood close enough to feel the heat of Kashya's body through leather, naked and flushed and entirely free.
+"I want the last hour with you," she said. "I want you to keep going when it takes the orgasm. I want to feel it happen while I cannot reach you or stop what I asked for."
 
-"Please make me come."
+"And at sunrise?"
 
-Kashya touched her.
+Cordelia glanced down at the magnificent pink vines framing her hips. "The prohibition ends. I assume the next one will belong to me."
 
-One hand closed behind Cordelia's neck and brought their mouths together. The kiss contained three days of refusal and years of things neither woman had named. Kashya did not kiss cautiously. Her mouth opened Cordelia's; her grip held black hair at the nape and kept her exactly where she had chosen to remain. Cordelia moaned against her, hands rising toward Kashya's shoulders.
+"Assume?"
 
-"Behind your back," Kashya said.
+"The explanatory corner was missing."
 
-Cordelia obeyed.
+Kashya closed her eyes for one measured breath. "Naturally."
 
-No cuff held her now. She placed both wrists in the small of her back because Kashya had told her to, because freedom made obedience richer, because the month had stripped the last respectable explanation from what she wanted.
+She fastened the cuffs again.
 
-Kashya looked at the offered posture. Something hungry moved beneath her discipline.
+The click passed through Cordelia with enough force to brighten the Rose. Kashya guided her from the cage to the narrow cot used by the jail watch and laid her upon it with bound wrists trapped beneath the small of her back. The door remained open. The keys remained visible upon the table. Neither fact made Cordelia feel less helpless when Kashya removed her gloves one finger at a time.
 
-"Keep them there."
+One hand closed behind Cordelia's neck and brought their mouths together. The kiss contained three days of refusal and years of things neither woman had named. Kashya did not kiss cautiously. Her mouth opened Cordelia's; her grip held black hair at the nape and kept her exactly where she had chosen to remain.
 
-Her mouth descended along Cordelia's throat. Teeth grazed the pulse, then closed more firmly where neck met shoulder. Cordelia arched, presenting full breasts without lifting her hands to guide or protect them. Kashya cupped one at last.
+The other hand cupped one breast.
 
-The first pressure of her palm nearly ended everything.
-
-Cordelia cried out. Her nipple pressed into Kashya's hand, swollen and dark red from the month. Kashya rolled it between finger and thumb, watching Cordelia's amber eyes lose focus. Her other hand held Cordelia upright at the waist.
+Cordelia cried into the kiss. Her nipple pressed into Kashya's palm, swollen and dark red from the month. Kashya rolled it between finger and thumb, watching Cordelia's amber eyes lose focus when their mouths parted.
 
 "Thirty days," Kashya murmured. "And this is all it takes?"
 
-"More," Cordelia begged.
+The humiliation struck as keenly as the touch. Cordelia, who had survived the Prime Evils and crossed Hell alone, could no longer keep her thighs still because one stern woman had taken off a glove. Her body had become obscenely receptive: nipples hard before contact, wetness already shining between her legs, every breath turning into an invitation she lacked the composure to conceal.
+
+"More," she begged.
 
 Kashya pinched harder.
 
-Pleasure struck downward through the bright rose. Cordelia's knees softened. Kashya caught her, turned her and walked her backward to the narrow cot used by the jail watch. Cordelia lay down with her hands still beneath her, wrists trapped now only by her own weight.
+Pleasure traveled through the breast and into the bright Rose. Cordelia's knees opened. Kashya accepted the invitation without comment, spreading her thighs until pink light framed the wet center of her body. One fingertip followed the central petal above it.
 
-Kashya removed her gloves.
-
-Cordelia watched each finger emerge and shook.
-
-The commander opened her thighs. There was no hesitation in the gesture, no pretense that she had not studied the view through the cage for three days. Pink vines framed Cordelia's hips. Moisture glistened over her vulva and along one thigh. Her clitoris stood swollen between parted lips, so sensitive that cool air made her abdomen contract.
-
-Kashya touched the rose first.
-
-One fingertip followed its central petal. Cordelia lifted from the cot with a broken sound.
+Cordelia lifted from the cot with a broken sound.
 
 "Still merely research?" Kashya asked.
 
@@ -674,65 +642,107 @@ One fingertip followed its central petal. Cordelia lifted from the cot with a br
 
 Her finger moved lower.
 
-She did not tease. The month had supplied enough teasing for several lives. Kashya pressed two fingers through Cordelia's wetness and entered her vagina in one smooth motion while her thumb settled over the clitoris.
+She did not tease. The month had supplied enough anticipation for several lives. Kashya pressed two fingers through Cordelia's wetness and entered her vagina in one smooth motion while her thumb settled over the clitoris.
 
 Cordelia's body seized around her hand.
 
-For one terrifying instant pleasure rose and Cordelia expected the Sentence to stretch it away again. The reflexive fear made her whimper.
+Kashya moved with the controlled certainty she brought to every weapon. Each thrust filled Cordelia where her own wand had failed to satisfy, different not in shape but in ownership. Her thumb circled steadily. Her free hand gripped one breast and drew the nipple between two fingers in rhythm with the penetration.
 
-Kashya stopped.
+Pleasure rose almost immediately. Cordelia's bound hands could neither seize Kashya nor interfere. Her long legs opened wider over the cot; high arches tensed, and bare toes curled against the rough blanket as her body hurried toward a conclusion it had learned to reach far too easily.
 
-"What?"
+"Already?" Kashya asked.
 
-"I thought it would deny me."
+Cordelia tried to deny it. Her vagina tightened around the fingers inside her and answered first.
 
-"It is gone."
+The orgasm began normally. Her hips lifted. Contractions closed around Kashya's hand. Then the Rose flashed, and the pleasure went out of them.
 
-"Tell my body."
+It did not fade. It was taken. Cordelia felt the precise instant when the glorious inward rush became a muffled pressure and flowed away through the tattoo. Her body continued contracting around Kashya while pink light filled another petal. Kashya never withdrew and never slowed. Her thumb kept moving across Cordelia's clitoris through every stolen pulse.
 
-Kashya bent over her. "Come when I permit it."
+Cordelia finished the physical climax with tears in her eyes and no satisfaction anywhere inside her.
 
-The words entered where reassurance could not.
+"That," Kashya said quietly, "is what it has done to you all month?"
 
-Her fingers began moving. Each thrust filled Cordelia exactly where the wand had failed to satisfy, not because the shape was different but because the hand belonged to Kashya. Her thumb circled Cordelia's clitoris with controlled pressure. The other hand gripped one breast, drawing the nipple between two fingers in rhythm with the penetration.
+Cordelia's hips were already following the continuing hand again. "Yes."
 
-Cordelia held her wrists behind her. She could have touched Kashya, seized the working hand, hurried the pace. She did none of it. Her long legs opened wider over the cot; high arches tensed, and bare toes curled against the rough blanket as pleasure climbed without finding the old invisible wall.
+The answer emerged with more pride than dignity.
 
-"Please," she gasped.
+Kashya watched the muted contractions subside. She felt Cordelia soften briefly around her fingers, then become receptive again with indecent speed. The Rose preserved the heat beneath the reset, returning need before breath or heartbeat had settled. Cordelia saw the exact moment Kashya understood how helplessly repeatable the mechanism had made her.
 
-Kashya's fingers drove deeper. "Not yet."
+"Again," Cordelia whispered.
 
-The denial lasted only seconds. After thirty days, seconds possessed an empire.
+Kashya obeyed.
 
-Cordelia strained beneath her, full breasts shaking with every movement, black hair spread beneath a face no longer capable of composure. The rose flared brighter and brighter around Kashya's hand. Her clitoris throbbed under the relentless circle of Kashya's thumb. The muscles of her vagina tightened around penetrating fingers, released and tightened again.
+The second climax took less time. Cordelia could not pretend otherwise while her body moved around the hand producing it. Kashya continued through the stolen release, fingers maintaining their depth, thumb refusing even the symbolic mercy of a pause. Pink light traveled out of Cordelia and entered a new layer of petals.
 
-"Kashya—"
+The physical pressure fell away. Satisfaction remained absent. Within moments the ache began rebuilding upon a baseline the rune would not let cool.
 
-"Now."
+Kashya brought her through a third. Then a fourth.
 
-Orgasm took Cordelia whole.
+Each followed the same exquisite injustice: ascent, involuntary contractions, the first bright promise of pleasure—and the Rose swallowing it at the instant it became hers. Cordelia's body reset every time. Her desperation did not. Being made to climax so readily beneath Kashya's hand, only to have the satisfaction displayed as light across her own abdomen, became more arousing than the stimulation alone.
 
-Her back arched from the cot. A cry tore through her, too large for the stone room, while her body clenched around Kashya's fingers in powerful, helpless contractions. Pleasure broke through every place the month had stored it: nipples, clitoris, vagina, the aching muscles low in her belly, even the sensitive soles drawn tight as her feet pointed. Pink light poured from the tattoo in a wave, harmless but brilliant, filling the cage and the former jail with the color of dawn through rose glass.
+She begged without knowing what she wanted Kashya to change. Stopping would leave her desperate. Continuing fed the Rose. Release could come only from time or a Cham rune locked beyond her reach.
 
-Kashya did not withdraw. She held Cordelia through every contraction, thumb maintaining pressure until the release became almost unbearable, then easing with enough precision to let it continue without turning painful. Cordelia's hands finally escaped from beneath her and caught the commander's wrist—not to stop it, merely because she needed something in the world to hold.
+Kashya chose continuing.
 
-The orgasm seemed to last as long as the Sentence had promised it would not happen.
+The eastern window gradually changed from black to grey. Cordelia noticed and immediately wished she had not. Sunrise approached with the slow certainty of an execution and the promise of ordinary freedom. She imagined the Rose going dark, Kashya's next movement finally carrying pleasure through instead of stealing it, and anticipation made her shake.
 
-When it ended, the tattoo dimmed to a single tiny rose. Then that too dissolved into warm bronze skin.
+"Nearly served," Kashya said.
 
-Cordelia lay trembling, wet and exhausted, one leg hanging from the cot. Kashya removed her hand slowly and gathered a blanket over her before attending to anything else.
+Cordelia pulled against the cuffs. "Don't stop."
+
+"I had not intended to."
+
+The words drove her toward another climax.
+
+Kashya's fingers curled inside her. Her thumb pressed with relentless precision. Cordelia arched, full breasts lifting, bound wrists trapped beneath her as the first line of sunlight entered the jail.
+
+Her body crossed the threshold.
+
+Contractions closed around Kashya's hand. The Rose blazed, ready to steal the pleasure as it had every time before.
+
+Then the thirty days ended.
+
+The missing corner of Vohl's inscription explained itself.
+
+Every stolen orgasm returned at once.
+
+The first alone would have overwhelmed her after a month of denial. It did not arrive alone. Cordelia felt every muted climax unfold inside the same impossible instant: the private experiments in her tent, the wand held between her thighs, the orgasm taken from sleep, every increasingly desperate attempt she had fed into the Rose and every one Kashya had just drawn from her bound body. They did not queue politely. They converged.
+
+Her back arched clear of the cot. A cry tore through her, too large for the stone room, while her vagina clenched around Kashya's fingers with such force that the commander had to brace her other arm across Cordelia's hips. Pleasure broke through every sensitized path at once—clitoris, vagina, breasts, the aching muscles low in her belly, even the soles of feet drawn tight enough to make every toe point.
+
+Pink light poured from the tattoo in a wave, filling the cage and former jail with the color of dawn through rose glass.
+
+Kashya did not withdraw. She held Cordelia through contractions which seemed to end only so that deeper ones could replace them. Her thumb remained against the clitoris but no longer needed to move. The returned pleasure supplied its own merciless rhythm, rising beyond anything Cordelia had imagined and then rising again whenever she thought the hoard must finally be empty.
+
+Cordelia lost language. She lost the ability to distinguish the hand inside her from the month returning around it. Bound arms strained uselessly beneath her. Black hair stuck to a face wet with sweat and astonished tears. Her feet slipped from the cot and found no strength to stand; Kashya's weight across her hips was the only thing keeping the colossal contractions from carrying her to the floor.
+
+The surprise became part of the orgasm. Vohl had let her believe she was sacrificing pleasure when she had merely been storing it beyond her control. Cordelia had chosen the duration, surrendered the keys and fed the Rose again and again. Now she could neither diminish the reward nor make her overwhelmed body receive it gracefully.
+
+She loved the unfairness of it almost as much as she loved Kashya seeing what it did to her.
+
+When the final wave passed, the tattoo dimmed to a single tiny rose. Then that too dissolved into warm bronze skin.
+
+Cordelia lay trembling, wet and exhausted, one leg hanging from the cot. Kashya removed her hand slowly, released the cuffs and gathered a blanket around her before attending to anything else.
 
 For several minutes neither spoke.
 
-Kashya brought water. Cordelia drank half and spilled the rest against her chin because her hands were unsteady. Kashya wiped it away with the same thumb whose innocent touch had tormented her three nights earlier.
+Kashya brought water. Cordelia attempted to sit, discovered that her legs and abdomen had temporarily resigned from service and accepted being held upright instead. She drank half the cup and spilled the rest against her chin because her hands were unsteady. Kashya wiped it away with the same thumb whose touch had helped empty the Rose.
 
-This time Cordelia only sighed.
+"The inscription should have mentioned that," Cordelia managed.
+
+"The inscription recommended one day."
+
+"Irrelevant scholarship."
+
+Walking remained theoretical that morning. Kashya carried her from the jail beneath the blanket and installed her in a private Monastery room before the Sisters began their patrols. Charsi arrived with the untouched rune pouch and tried very hard not to look pleased by the evidence that keeping it had mattered. Cordelia spent the first day sleeping, drinking water and discovering that even rolling onto one side could wake fading echoes in her oversensitive body.
+
+On the second day she could stand if Kashya allowed both arms around her waist. On the third she crossed the room with the dignified, careful gait of a woman who refused to admit that the largest orgasm of her life had made stairs strategically inadvisable.
 
 "That," Kashya said, "will never happen again."
 
 Cordelia opened one amber eye.
 
-The commander's coat had come partly unlaced. Her dark hair was disordered near one temple. Two fingers of her bare hand still glistened before she wiped them with a cloth. She looked cold, controlled and entirely unconvincing.
+The commander's coat had come partly unlaced. Her dark hair was disordered near one temple. She looked cold, controlled and entirely unconvincing.
 
 "Of course not," Cordelia said.
 
@@ -760,7 +770,7 @@ Cordelia settled beneath the blanket, smiling as sleep approached.
 
 "Then there is no danger in making it properly."
 
-The Rose Sentence had vanished. Thirty days of helpless need had ended, leaving Cordelia free, satisfied and already designing the next avoidable problem.
+The Rose Sentence had vanished. Thirty days of stolen pleasure had returned with ruinous interest, leaving Cordelia free, profoundly satisfied and already designing the next avoidable problem.
 
 Kashya looked toward the iron cage.
 
