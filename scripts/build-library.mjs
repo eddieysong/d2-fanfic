@@ -394,6 +394,30 @@ const standalone = [
     eyebrow: "Fifteen years later · Seris Vale",
   },
   {
+    file: "seris_reactions_01_voluntary_applications.md",
+    slug: "seris-01-voluntary-applications",
+    collectionId: "archives",
+    eyebrow: "Emily Vohl’s Catalogue · Volume I",
+  },
+  {
+    file: "seris_reactions_02_forty_five_days.md",
+    slug: "seris-02-forty-five-days",
+    collectionId: "archives",
+    eyebrow: "Emily Vohl’s Catalogue · Volume II",
+  },
+  {
+    file: "seris_reactions_03_private_field_equipment.md",
+    slug: "seris-03-private-field-equipment",
+    collectionId: "archives",
+    eyebrow: "Emily Vohl’s Catalogue · Volume III",
+  },
+  {
+    file: "seris_reactions_04_black_rose_addendum.md",
+    slug: "seris-04-the-black-rose-addendum",
+    collectionId: "archives",
+    eyebrow: "Emily Vohl’s Catalogue · Volume IV",
+  },
+  {
     file: "beneficent_archives_01_commission_and_command.md",
     slug: "36-commission-and-command",
     collectionId: "archives",
