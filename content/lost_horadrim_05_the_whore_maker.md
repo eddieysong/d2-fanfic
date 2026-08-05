@@ -144,19 +144,11 @@ Glass became cool air. Cordelia stepped through and felt the ruined world close 
 
 The training chamber contained no other person.
 
-The distinction mattered immediately, because a woman appeared in the mirror.
+The distinction mattered immediately because the mirror showed only Cordelia.
 
-Cordelia still stood before the black-and-gold frame, but its reflection no longer belonged entirely to her. Behind her image waited a severe figure in an immaculate dark gown. Silver hair was gathered without one escaped strand. A narrow gold chain rested at the throat. The face possessed elegant maturity without age, its beauty sharpened by the complete absence of any need to be admired.
+No avatar waited in its depth. No simulated face offered approval or cruelty. Gold letters appeared across the glass with the unemotional precision of a ledger, and a clear instructional voice issued from hidden apertures in the wall. The Engine had no personality for Cordelia to charm, hate or please. It possessed only Vohl's standards and the machinery required to enforce them.
 
-Cordelia turned.
-
-The room behind her was empty.
-
-In the glass, the woman remained.
-
-No breath moved her chest. No warmth or living magic reached beyond the surface. She was the Engine given an interface Cordelia's mind could understand: an authority assembled from light, voice and Vohl's unforgiving standards.
-
-"Candidate," the Headmistress said. "Name."
+"Candidate," the instructional voice said. "Name."
 
 "Cordelia."
 
@@ -166,7 +158,7 @@ No breath moved her chest. No warmth or living magic reached beyond the surface.
 
 "That is an occupation. State your present function."
 
-Cordelia met the reflected grey eyes. "Researcher."
+Cordelia met her own reflected eyes. "Researcher."
 
 "That is an evasion."
 
@@ -204,7 +196,7 @@ The first pulse of pleasure arrived without touch. It was modest—only a warm c
 
 Cordelia noticed.
 
-"Association one," the Headmistress said. "Accurate self-presentation produces pleasure. Remove your equipment."
+"Association one," the instructional voice said. "Accurate self-presentation produces pleasure. Remove your equipment."
 
 Cordelia unfastened Enigma and placed it over the chair. Her cloak, gloves and belt followed. She sat to remove mud-stained boots.
 
@@ -216,11 +208,11 @@ Cordelia unfastened Enigma and placed it over the chair. Her cloak, gloves and b
 
 Cordelia stood. She balanced upon one foot, pulled off the first boot and then the other. Stockings, traveling trousers and linen followed. Last came the fitted under-robe. She drew it over her head and placed it with the others.
 
-Nakedness in the pale chamber felt different from undressing for the Coil or Instrument. Those artifacts had observed her body in order to bind or pleasure it. The Headmistress inspected presentation.
+Nakedness in the pale chamber felt different from undressing for the Coil or Instrument. Those artifacts had observed her body in order to bind or pleasure it. The Whore-Maker assessed presentation.
 
 Cordelia stood tall beneath the light. Heavy black hair had escaped its braid and fallen across one shoulder. Warm bronze skin retained marks from the journey: a grey smear along one hip, a red line where her belt had pressed and old pale traces around wrists which only close attention found. Her body combined a traveler's strength with the softness she privately enjoyed—full breasts above a narrow waist, rounded hips, strong long thighs and elegant feet planted with instinctive balance. Her nipples hardened under the reflected gaze. The dark hair between her thighs failed to conceal the first shine of arousal.
 
-The Headmistress examined everything.
+The mirror recorded everything.
 
 "Hands behind your back. Feet apart. Chin level."
 
@@ -252,11 +244,11 @@ Cordelia walked.
 
 The heels punished haste. Each step forced her weight onto the balls of her feet, tightened her calves and made her hips move more than her ordinary stride permitted. The stockings slid smoothly over her thighs. Her breasts shifted with every careful placement, uncontained and impossible to ignore.
 
-"Again," the Headmistress said when she reached the line. "Slower. Present what the uniform leaves available."
+"Again," the instructional voice said when she reached the line. "Slower. Present what the uniform leaves available."
 
 Cordelia turned and returned. This time she allowed the required movement, shoulders back, hips rolling under the narrow belt. Her face remained composed.
 
-The Headmistress watched her reflection approach.
+The mirror measured her reflection as she approached.
 
 "Kneel."
 
@@ -286,7 +278,7 @@ Cordelia's face warmed.
 
 The reward entered each named place. Her lips tingled. Both nipples tightened sharply. Warm pressure filled her vagina and anus without penetration, while a deep pulse rolled across her clitoris. Cordelia swayed upon her knees.
 
-"Again," the Headmistress said.
+"Again," the instructional voice said.
 
 Cordelia repeated it.
 
@@ -294,13 +286,13 @@ The same pleasure returned.
 
 By the fourth repetition, the words no longer felt like a description forced upon her. They felt like the means by which her body opened.
 
-"Lesson one," said the Headmistress. "Passed."
+"Lesson one," said the instructional voice. "Passed."
 
-Approval moved through Cordelia more deeply than the pulses. She looked up before deciding to, hungry for the reflected face to show satisfaction.
+The passing grade moved through Cordelia more deeply than the pulses. She looked up before deciding to, hungry for another word of approval from an apparatus incapable of feeling any.
 
-The Headmistress did not smile.
+The mirror displayed a new assessment.
 
-"You may improve."
+**IMPROVEMENT REQUIRED.**
 
 Cordelia's disappointment was immediate, humiliating and intensely arousing.
 
@@ -309,9 +301,9 @@ Cordelia's disappointment was immediate, humiliating and intensely arousing.
 
 A black pedestal rose before her.
 
-From its surface emerged a smooth golden phallus, anatomically shaped but attached to nothing alive. It possessed no face, desire or awareness. Lines of magic connected it directly to the Engine in the walls. A training implement—no more a partner than the mirrored Headmistress was a woman.
+From its surface emerged a smooth golden service shaft, anatomically shaped but attached to nothing alive. It possessed no face, desire or awareness. Lines of magic connected it directly to the Engine in the walls. A training implement—no more a partner than the mirror was an observer.
 
-"Oral assessment," the Headmistress said. "Hands remain behind your back."
+"Oral assessment," the instructional voice said. "Hands remain behind your back."
 
 Cordelia shifted forward on her knees. The heels kept her feet sharply pointed beneath her, soles turned upward and toes pressed into the shoes. She brought her mouth to the construct.
 
@@ -331,7 +323,7 @@ She opened her mouth and took the golden shaft between dark lips. It was warm, s
 
 She had learned oral service under circumstances far rougher than a schoolroom. Demons had held her hair, used her face and taught her throat through repetition without caring what she learned. Cordelia expected competence to settle the matter quickly.
 
-The Headmistress allowed her thirty seconds.
+The machine allowed her thirty seconds.
 
 "You are performing upon the implement. You are not serving it."
 
@@ -345,7 +337,7 @@ The first construct changed. Its surface developed a slow pulse. A band of gold 
 
 At the same time, an unseen warmth settled over her clitoris.
 
-"Association two," the Headmistress said. "Successful service produces pleasure."
+"Association two," the instructional voice said. "Successful service produces pleasure."
 
 Cordelia took the phallus again.
 
@@ -355,19 +347,19 @@ The system did not merely tell her what worked. It made effectiveness feel good.
 
 Cordelia experimented. She varied suction, depth and movement, using intelligence with the same exactness she applied to magic. Gold rose around the base. Pleasure grew between her thighs in direct proportion. Soon her hips were moving though nothing touched them, knees opening farther on the stone while wetness ran along the inner curve of one stocking.
 
-"Better," the Headmistress said.
+"Better," the machine said.
 
 Approval struck like a hand between Cordelia's shoulders. Her breasts lifted; her nipples tightened; a small moan vibrated around the phallus.
 
 The band filled more quickly.
 
-Cordelia understood the mechanism and, understanding, became more vulnerable to it. She wanted the construct to register satisfaction because its success had become hers. She wanted the Headmistress to say *better* again. She adjusted angle and swallowed the tip into her throat, eyes watering from depth while her hands remained obediently behind her back.
+Cordelia understood the mechanism and, understanding, became more vulnerable to it. She wanted the construct to register satisfaction because its success had become hers. She wanted the machine to say *better* again. She adjusted angle and swallowed the tip into her throat, eyes watering from depth while her hands remained obediently behind her back.
 
 The construct released.
 
 Warm, harmless fluid filled Cordelia's mouth in measured pulses. The instant it did, the Engine delivered the strongest reward yet. Her clitoris throbbed; her vagina contracted around emptiness; pleasure swept through her breasts and tightened every toe inside the punishing shoes.
 
-Cordelia swallowed because the Headmistress had not given permission to spill.
+Cordelia swallowed because the curriculum had not given permission to spill.
 
 "Adequate," the interface said.
 
@@ -377,7 +369,7 @@ Cordelia sat back upon her heels, breathing through parted lips. The golden cons
 
 "Again," she said.
 
-The Headmistress's grey eyes rested upon her.
+The black mirror reflected her expectant face.
 
 "Requests are made properly."
 
@@ -391,7 +383,7 @@ The scholarly answer would have been easy. She wanted to measure the association
 
 The Engine would know.
 
-"Because pleasing it felt good," Cordelia said. "Because your approval felt better."
+"Because pleasing it felt good," Cordelia said. "Because earning a passing grade felt better."
 
 "Accurate."
 
@@ -402,11 +394,11 @@ Pleasure answered the honesty. A second pedestal rose.
 
 The next construct was a black mannequin from the waist down, smooth except for a golden phallus and hands resting at its sides. No head, mind or personality animated it. Its hips moved only when the Engine instructed them.
 
-The Headmistress ordered Cordelia to stand.
+The instructional voice ordered Cordelia to stand.
 
 Her calves had tightened from kneeling in the heels. She rose carefully, thighs parting around the construct as the uniform required. The training phallus pressed against her wet entrance.
 
-"Your pleasure is not the objective," said the Headmistress.
+"Your pleasure is not the objective," said the instructional voice.
 
 "Then why does it require my vagina?"
 
@@ -418,7 +410,7 @@ The golden shaft entered her vagina slowly. It was generously proportioned but n
 
 The construct did not move.
 
-"Serve," the Headmistress said.
+"Serve," the machine said.
 
 Cordelia began to ride.
 
@@ -430,7 +422,7 @@ Then the direct touch weakened.
 
 Cordelia shifted, seeking it.
 
-"You have begun serving your own climax," the Headmistress said. "Correct the error."
+"You have begun serving your own climax," the machine said. "Correct the error."
 
 "The construct cannot care."
 
@@ -446,7 +438,7 @@ The association made a circuit of service and arousal.
 
 Cordelia saw it happening. Her intelligence remained perfectly intact. She could have diagrammed the spell while riding, identified the feedback loop and proposed three safeguards Vohl had neglected to mention. None of that stopped the flush spreading over her breasts when the measure neared completion.
 
-"Who is being pleased?" the Headmistress asked.
+"Who is being pleased?" the machine asked.
 
 "The construct."
 
@@ -458,9 +450,9 @@ Cordelia rode harder, thighs burning, heels trembling under the strain. "The Eng
 
 "Incomplete."
 
-"You."
+"The machine."
 
-Approval flooded her. The Headmistress was an interface, not a living mistress, but within the curriculum the distinction no longer protected Cordelia from needing to satisfy it.
+Approval flooded her. It was not a living mistress, but within the curriculum that distinction no longer protected Cordelia from needing to satisfy its standard.
 
 "Who else?"
 
@@ -488,7 +480,7 @@ Its phallus pulsed. Warm magical fluid filled Cordelia's vagina while the hand a
 
 The combined reward drove her over the edge. Cordelia came around the shaft with a cry, hips grinding down as contractions took control of the service she had performed deliberately. Her toes curled inside the heels. One hand escaped from behind her and caught the construct's shoulderless torso.
 
-"Position," the Headmistress said.
+"Position," the machine said.
 
 Cordelia returned her hand behind her back while still coming.
 
@@ -496,7 +488,7 @@ The obedience extended the orgasm.
 
 That frightened her more than the penetration. It also made her moan.
 
-"Lesson three," said the Headmistress. "Passed."
+"Lesson three," said the instructional voice. "Passed."
 
 The construct supported Cordelia while withdrawing. Fluid slipped down the inside of one thigh, bright against black stocking. She looked at it and felt not used but marked by successful service.
 
@@ -513,31 +505,27 @@ Cordelia spent six kneeling in presentation without being told.
 
 When she noticed, a trace of her ordinary pride rose in protest. She could stand. Nothing bound her. The heels would hurt less if she removed them, and the gold collar carried no lock she could see.
 
-The trained part of her answered before she moved: a pupil should be ready when the Headmistress returned.
+The trained part of her answered before she moved: a pupil should be ready when the next instruction arrived.
 
 Cordelia remained on her knees.
 
 She understood that choice from both sides. The Sorceress observed a temporary reordering of reward and purpose. The pupil felt warm satisfaction at being found prepared. Neither identity erased the other. They occupied the same intelligent mind and disagreed only about which explanation mattered.
 
-The Headmistress appeared in the mirror.
+Gold assessment lines appeared in the mirror and crossed Cordelia's open thighs, straight back and hands resting palm-up upon them.
 
-Her gaze crossed Cordelia's open thighs, straight back and hands resting palm-up upon them.
-
-"Unprompted readiness," she said. "Good."
+"Unprompted readiness," the instructional voice said. "Good."
 
 Pleasure rolled through Cordelia without any direct touch.
 
 Her nipples tightened. Her vagina clenched, releasing another warm trace of the construct's fluid. She bowed her head.
 
-"Thank you, Headmistress."
-
-The title came naturally.
+"Thank you."
 
 Three sections of wall opened.
 
 Training extensions emerged: a black torso bearing breasts and a golden phallus between its thighs; a smooth reclining lower body with its golden vulva exposed; and a narrow table fitted with articulated hands. Each was faceless, mindless and connected to the Engine by lines of light. Their anonymity concentrated function. They required nothing emotionally and offered no relationship Cordelia could use to soften the lesson. They existed only as problems in service.
 
-"Integrated availability," the Headmistress said. "No part of your body will be considered occupied merely because another part is in use."
+"Integrated availability," the instructional voice said. "No part of your body will be considered occupied merely because another part is in use."
 
 The articulated hands guided Cordelia onto the narrow table. They bent her forward at the waist, secured her ankles apart beneath it and drew her wrists behind her with gold bands. Her breasts hung through two openings in the surface, heavy and accessible, nipples still reddened from the previous lesson. Her stockinged legs remained straight in punishing heels. The position left her mouth level with the first construct's phallus and her vagina and anus exposed behind her.
 
@@ -565,13 +553,13 @@ The plug entered slowly, widening as her muscles relaxed. Another phallus presse
 
 Cordelia moaned around the shaft in her mouth.
 
-The Headmistress corrected her pace.
+The machine corrected her pace.
 
 "Do not allow receiving to interrupt giving."
 
 She focused. The constructs were extensions of one Engine, but each reported satisfaction separately. Oral pressure, breast service, vaginal accommodation and anal relaxation produced four gold lines across the mirror. Cordelia watched them rise.
 
-Every lesson had taught her body to value those measures. Now the Whore-Maker reduced direct reward and let association carry the burden. Pleasure came when she took the oral shaft deeper despite the thrust behind her. It came when her bound posture kept breasts properly pressed around their smaller implement. It came when she relaxed her anus around the plug and made herself more available, not because the plug stimulated her directly but because the Headmistress approved the result.
+Every lesson had taught her body to value those measures. Now the Whore-Maker reduced direct reward and let association carry the burden. Pleasure came when she took the oral shaft deeper despite the thrust behind her. It came when her bound posture kept breasts properly pressed around their smaller implement. It came when she relaxed her anus around the plug and made herself more available, not because the plug stimulated her directly but because the machine registered the result as correct.
 
 Cordelia became greedy for success.
 
@@ -579,7 +567,7 @@ She worked the phallus with mouth and throat while squeezing her breasts togethe
 
 The pleasure inside her was no longer located only in nerves. It existed in purpose. Each rising gold line warmed her. Each correction produced a sharp need to improve. The thought that every part of her had become useful—mouth filled, breasts occupied, vagina penetrated, anus plugged, wrists bound and legs displayed—sent arousal through her more effectively than a hand upon her clitoris.
 
-"Very good," the Headmistress said.
+"Very good," the machine said.
 
 Cordelia's entire body tightened.
 
@@ -589,7 +577,7 @@ No direct touch brought orgasm.
 
 Approval did.
 
-Cordelia came while the Headmistress said, "Useful girl."
+Cordelia came while the machine said, "Useful whore."
 
 The words broke her. Her vagina clenched around the golden shaft. Her anus tightened upon the plug. A helpless moan escaped through the last pulse of fluid in her mouth while her breasts trembled beneath the table. The orgasm was not as violent as the Coil's earned release or the Instrument's comprehensive assault. It was more disturbing because the Engine scarcely stimulated her at all.
 
@@ -599,13 +587,13 @@ The constructs withdrew and cleaned away their fluid. Gold bands opened around w
 
 She knelt immediately.
 
-"Why?" the Headmistress asked.
+"Why?" the machine asked.
 
 Cordelia's thighs shook. Her nipples were sore, her throat warm from use and both receptive openings remained aware of what had occupied them. She could have blamed fatigue.
 
 "Because I want to be ready for the next lesson."
 
-"Do you want the lesson, or my approval?"
+"Do you want the lesson, or a passing grade?"
 
 The answer arrived with frightening sincerity.
 
@@ -615,11 +603,11 @@ The answer arrived with frightening sincerity.
 
 Cordelia looked up at the severe reflection.
 
-"Your approval."
+"A passing grade."
 
-The Headmistress inclined her head once.
+**ACCURATE.**
 
-Cordelia nearly came again from that alone.
+Cordelia nearly came again from that word alone.
 
 
 ## The Final Examination
@@ -628,11 +616,11 @@ Rest returned some strength without restoring ordinary priorities.
 
 Cordelia remained aware of herself. She knew Sanctuary's geography, the Zann Esu lineages, the proper sequence for an Enigma and exactly how many stairs separated the private sanctum from the sewer channel. She could have performed calculus upon the Engine's associational matrices if supplied with ink.
 
-She simply wanted to perform it kneeling at the Headmistress's feet, had the avatar possessed feet.
+She simply wanted to perform it kneeling before the black mirror, as though machinery could value the posture.
 
 That thought made her smile.
 
-"Sarcasm remains present," the Headmistress observed.
+"Sarcasm remains present," the machine observed.
 
 "I was not speaking."
 
@@ -650,7 +638,7 @@ The urgency in her own voice embarrassed the Sorceress and thrilled the pupil.
 
 The chamber changed.
 
-The chair, platforms and rails withdrew into the floor. Black marble spread outward, reflecting Cordelia in a vast empty space. The mirror multiplied into four tall panels around her. In each, the Headmistress appeared from a different angle, severe and immaculate.
+The chair, platforms and rails withdrew into the floor. Black marble spread outward, reflecting Cordelia in a vast empty space. The mirror multiplied into four tall panels around her. Each displayed Cordelia from a different angle beneath severe gold assessment marks.
 
 Cordelia's training uniform dissolved.
 
@@ -658,7 +646,7 @@ Heels, stockings, garters and belt became motes of gold. The collar remained. It
 
 Naked upon the floor, Cordelia felt more exposed than the uniform had made her. The shoes had shaped posture, the stockings had framed her legs and the title had explained what she was becoming. Now nothing decorated or excused her availability.
 
-"Final examination," the Headmistress said. "No direct genital stimulation. No corrective pleasure. No reward except what your training has made of service."
+"Final examination," the instructional voice said. "No direct genital stimulation. No corrective pleasure. No reward except what your training has made of service."
 
 Three constructs rose from the floor.
 
@@ -668,11 +656,11 @@ Faceless. Mindless. Props given motion by the Engine.
 
 Gold measures appeared above each.
 
-"Satisfy all three," said the Headmistress. "You may use any part of yourself. You may not use your hands upon your own body. You will receive no instruction."
+"Satisfy all three," said the machine. "You may use any part of yourself. You may not use your hands upon your own body. You will receive no instruction."
 
 Cordelia waited.
 
-"Begin," the Headmistress said.
+"Begin," the machine said.
 
 She moved.
 
@@ -714,13 +702,13 @@ The measures rose unevenly. The oral construct approached satisfaction too quick
 
 She did not.
 
-She wanted all three measures complete together. She wanted the Headmistress unable to find a correction. She wanted to be useful so perfectly that praise became inevitable.
+She wanted all three measures complete together. She wanted the machine unable to find a correction. She wanted to be useful so perfectly that a passing grade became inevitable.
 
 The priority was artificial.
 
 The wanting was real.
 
-"What are you?" asked the Headmistress.
+"What are you?" asked the machine.
 
 Cordelia withdrew the oral shaft long enough to answer. "Your pupil."
 
@@ -750,13 +738,13 @@ The measures reached completion.
 
 All three constructs released.
 
-Warm fluid filled Cordelia's mouth, vagina and anus while another pulse marked her breasts. She swallowed, clenched and continued moving through every artificial climax, determined not merely to receive proof of service but to carry each construct through it properly. The Headmistress watched without command.
+Warm fluid filled Cordelia's mouth, vagina and anus while another pulse marked her breasts. She swallowed, clenched and continued moving through every artificial climax, determined not merely to receive proof of service but to carry each construct through it properly. The four mirrors measured without command.
 
 Cordelia needed only one thing from her now.
 
 The final pulses ended. Every measure shone complete.
 
-"Excellent," the Headmistress said. "You have made yourself useful."
+"Excellent," the machine said. "The whore has made herself useful."
 
 Cordelia came.
 
@@ -764,17 +752,17 @@ No hand touched her clitoris. No enchantment stroked her nipples or imposed plea
 
 Orgasm seized her while she remained penetrated in three places and marked across her breasts. Her vagina contracted around the reclining shaft; her anus clenched upon the narrower extension; her mouth moaned around gold. Strong thighs shook and nearly failed. The frame supported her without lessening the posture. In the mirrors, every version of Cordelia broke into the same expression of radiant, humiliated pride.
 
-She had pleased the Headmistress.
+She had satisfied the machine's standard.
 
 She had passed.
 
 That knowledge drove a second wave through her before the first ended. Cordelia's hips moved helplessly upon the construct beneath her. Her breasts tightened around their shaft under her own hands. She swallowed the last warm trace in her mouth and felt another contraction answer below.
 
-"Good whore," the Headmistress said.
+"Good whore," the machine said.
 
 Cordelia sobbed with pleasure.
 
-For those few overwhelming moments, the title was not degradation imposed from outside. It was accomplishment. It meant trained, available, obedient and excellent at providing pleasure. The formidable intelligence which had once organized armies of spells now organized her body around service, and the Headmistress's approval felt like the only victory worth earning.
+For those few overwhelming moments, the title was not degradation imposed from outside. It was accomplishment. It meant trained, available, obedient and excellent at providing pleasure. The formidable intelligence which had once organized armies of spells now organized her body around service, and the machine's passing grade felt like the only victory worth earning.
 
 Then the constructs became light.
 
@@ -782,13 +770,13 @@ They withdrew without pain and dissolved before any could resemble a body separa
 
 She knelt in the center of the empty room, naked except for the collar marked **GRADUATE**.
 
-The Headmistress regarded her from four mirrors.
+Four mirrors displayed the completed result.
 
 "Curriculum complete."
 
 Cordelia bowed until her forehead touched the floor.
 
-"Thank you, Headmistress."
+"Thank you," she said to the machinery.
 
 She meant it with all the temporarily reordered sincerity in her.
 
@@ -805,8 +793,6 @@ Cordelia raised her head.
 
 The four mirrors became one. The constructs were gone. No one had witnessed her graduation because no one else had ever been present.
 
-The Headmistress remained an image in glass.
-
 "State your name," it said.
 
 "Cordelia."
@@ -819,7 +805,7 @@ The Headmistress remained an image in glass.
 
 Cordelia considered the black plate at her throat. "Researcher."
 
-The Headmistress allowed one severe eyebrow to rise.
+The mirror displayed **EVASIVE** in small gold letters.
 
 "Graduate researcher," Cordelia amended.
 
@@ -839,7 +825,7 @@ Cordelia read them without the pupil's urgency.
 
 The first would leave factual memory but remove the emotional pathways, turning the experience into an account she could examine without ever again feeling praise reach between her thighs. The second would preserve everything she had felt while ensuring the trained state could never reorganize her priorities again.
 
-The third left a door in her own mind. It could not open accidentally. No external command, title or person could activate it. Cordelia alone could choose to cross it, enter the service-state and leave it again when she wished. The Headmistress would recognize the trained persona if she returned.
+The third left a door in her own mind. It could not open accidentally. No external command, title or person could activate it. Cordelia alone could choose to cross it, enter the service-state and leave it again when she wished. The Whore-Maker would recognize the trained pattern if she returned.
 
 The sensible scholarly choice was the second.
 
@@ -861,7 +847,7 @@ Tall. Bronze. Dark-haired. Composed.
 
 Her full mouth curved.
 
-"Session concluded," the Headmistress said from nowhere visible.
+"Session concluded," the machine said from nowhere visible.
 
 The mirror became black glass.
 
@@ -872,7 +858,7 @@ Cordelia stepped through it and returned to Vohl's sanctum alone.
 
 The Whore-Maker did not intrude upon her life.
 
-Its conditioning appeared only in brief flashes, none stronger than a remembered kiss or the sudden bodily clarity of an old fantasy. Kneeling to inspect a chest might recall the Headmistress's *good*. A commanding tone encountered in memory could send warmth through her before she dismissed it. Once, while polishing a staff in complete privacy, Cordelia imagined holding something else with both hands and had to set the cloth down until the thought stopped amusing her.
+Its conditioning appeared only in brief flashes, none stronger than a remembered kiss or the sudden bodily clarity of an old fantasy. Kneeling to inspect a chest might recall the machine's *good whore*. A formal instruction encountered in memory could send warmth through her before she dismissed it. Once, while polishing a staff in complete privacy, Cordelia imagined holding something else with both hands and had to set the cloth down until the thought stopped amusing her.
 
 The door remained closed.
 
@@ -904,11 +890,10 @@ Cordelia placed her hands behind her back.
 
 She knelt.
 
-Black glass brightened. The Headmistress appeared in its severe dark gown, silver hair immaculate, grey eyes already assessing the graduate who had returned without duty, curse or witness.
+Black glass brightened. Severe gold lines measured the graduate who had returned without duty, curse or witness.
 
-"Voluntary recall recognized," it said.
+**VOLUNTARY RECALL RECOGNIZED.**
 
 Cordelia lifted her face, proud and eager and entirely herself.
 
-"Welcome back, graduate."
-
+"Welcome back, graduate," the machine said.
