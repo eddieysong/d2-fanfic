@@ -47,7 +47,7 @@ const collections = [
     label: "The Beneficent Archives",
     kicker: "Fifteen to twenty years later",
     description:
-      "Later scholars and Rogues uncover the private records, inventions, and persistent legend of Cordelia’s adventures.",
+      "Later scholars uncover the private records, inventions, and persistent legend of Cordelia’s adventures.",
   },
 ];
 
@@ -416,13 +416,6 @@ const standalone = [
     slug: "seris-04-the-black-rose-addendum",
     collectionId: "archives",
     eyebrow: "Emily Vohl’s Catalogue · Volume IV",
-  },
-  {
-    file: "beneficent_archives_01_commission_and_command.md",
-    slug: "36-commission-and-command",
-    collectionId: "archives",
-    eyebrow: "Twenty years later · Mira Thorne",
-    title: "The Beneficent Archives — Commission and Command",
   },
 ];
 
