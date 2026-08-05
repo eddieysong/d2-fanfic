@@ -104,6 +104,40 @@ They did not test the Loom.
 
 Zephira packed the Black Rose beside the Appraising Glass and spent the return voyage insisting that possession did not imply intention. Cordelia agreed with suspicious ease. Emily produced historical commentary until a wave passed through her head and improved the conversation.
 
+The seal nevertheless altered the voyage.
+
+It occupied a padded compartment no larger than Zephira's palm, yet the awareness of it followed her through meals, watches and sleep. During the second night, she woke to the low groan of timber and found herself remembering the floating diagrams: not their explicit details so much as the composure of the figures caught inside them. They had not looked conquered. They had looked arranged, their helplessness made deliberate and beautiful by someone who understood exactly what pride cost to surrender.
+
+Zephira blamed the motion of the ship for the heat beneath her blanket.
+
+Across the narrow cabin, Cordelia lay awake with one forearm over her eyes.
+
+"You are thinking loudly," Zephira said.
+
+"I am considering calibration theory."
+
+"Naked calibration theory?"
+
+Cordelia lowered her arm. "The diagrams were naked."
+
+"So was your theory."
+
+They listened to another wave pass beneath the hull.
+
+"The phrase is atrocious," Cordelia said at last.
+
+"Yes."
+
+"Cleverly so."
+
+"No."
+
+"It prevents the subject from pretending she activated the setting by accident."
+
+Zephira turned toward the wall. "I understand why it works. That does not make it clever."
+
+The distinction kept her awake for another hour.
+
 Six days after leaving the island, they entered the Disused Fane in Kurast.
 
 Cordelia led them beneath the seventh face, through the old sewer gallery and into the circular sanctum where the Whore-Maker waited. Zephira had heard a limited account of the machine. She knew it had trained Cordelia for carnal service, temporarily altered the priority desire assigned to obedience and left behind voluntary echoes rather than commands. She had not known that the legendary Sorceress revisited it.
@@ -151,6 +185,22 @@ Black glass opened.
 **SEVERE CURRICULUM ACCEPTED.**
 
 Golden restraints emerged from the platform. They removed Cordelia's remaining clothing with neither haste nor ceremony. Cuffs closed around wrists and ankles; a narrow posture bar encouraged her shoulders back and left her full breasts presented beneath the chamber light. A collar settled at her throat without silencing her.
+
+The efficiency of the undressing disturbed Zephira more than rough handling would have. Cordelia's underdress was opened, folded and deposited beside Enigma. Her boots were drawn from her feet and aligned beneath the chair. The machinery had no interest in tearing cloth or creating spectacle. It simply identified everything interfering with access and removed it.
+
+Cordelia stood naked upon a ring of gold light.
+
+She was accustomed to being beautiful in motion: dark hair flying behind a teleport, long legs planted before a spell, full breasts and rounded hips transformed by the jewelry into the kind of armor no responsible smith would claim. Stillness exposed different things. The severe machine recorded the small lift of her chin, the tension in her stomach, the way her nipples hardened before any implement touched them. It measured the moisture beginning between her thighs and displayed a neutral result.
+
+**SUBJECT AROUSAL: PRESENT. RESISTANCE: PERFORMATIVE.**
+
+Cordelia read it twice.
+
+"I am resisting your conclusions."
+
+**CONCLUSION UNCHANGED.**
+
+Zephira felt the urge to laugh and the equally strong urge to look away. She did neither. Cordelia had offered her the choice to witness. Watching therefore carried its own responsibility: to see without pretending the scene was merely funny, and without claiming the intimacy of it belonged to her.
 
 The machine did not examine Cordelia as a woman.
 
@@ -200,6 +250,26 @@ The shaft presented itself again.
 
 Cordelia served it.
 
+The next attempt lasted longer. The shaft did not thrust so much as present successive requirements, advancing to one marked depth and waiting for Cordelia to accommodate it before requesting the next. Her throat flexed visibly. Tears gathered from reflex rather than pain. Each time she tried to finish the measured sequence quickly, the machine identified haste as loss of technique and returned her to the beginning.
+
+Zephira watched irritation become concentration.
+
+Cordelia adjusted the angle of her neck. She widened her knees before being instructed, creating a stable base despite her bound wrists. Her tongue found the responsive channel beneath the shaft; lips sealed more carefully; breath arrived through her nose in deliberate intervals. This was how she approached every difficult task. She learned it. That the task happened to require kneeling naked before a mechanical phallus did not diminish the formidable intelligence she brought to it.
+
+It made the sight far more indecent.
+
+The machine displayed a moving score beside Cordelia's reflection.
+
+**DEPTH: ACCEPTABLE. RHYTHM: IMPROVING. PRESENTATION: INCONSISTENT.**
+
+The posture bar tipped her chest higher. Cordelia's breasts lifted and swayed with each controlled movement of her head. Her hands tightened behind her back, unable to cover, support or participate.
+
+**THE WHORE WILL DISPLAY HERSELF WHILE SERVING.**
+
+Cordelia's eyes flashed toward the mirror. Her mouth remained occupied. She could object only by stopping, and stopping would require beginning again.
+
+She continued.
+
 When she found the required depth and maintained it, mechanical fingers closed around her nipples. Pleasure passed sharply through her. Cordelia moaned around the shaft before she could prevent it.
 
 **SUCCESSFUL SERVICE. REWARD ADMINISTERED.**
@@ -215,6 +285,46 @@ Zephira stopped smiling.
 She understood the danger now. The machine did not need malice. Every correct act trained Cordelia's body to want the next correction. Every humiliating classification arrived beside measurable evidence that the subject was becoming more responsive.
 
 The curriculum moved onward. Articulated implements filled Cordelia while the service shaft occupied her mouth. The machine graded the stability of her kneeling posture, the openness of her body and whether pleasure distracted her from the assigned task. When it did, stimulation stopped.
+
+Its second trick was coordination.
+
+The service shaft developed a slow forward rhythm while a rounded extension pressed between Cordelia's thighs. It did not enter until the display showed her hips properly aligned. Once accepted, it filled her with gradual, polished pressure. A smaller plug waited behind it, touching without advancing.
+
+**AVAILABLE OPENING DETECTED. RELAXATION REQUIRED.**
+
+Cordelia withdrew from the oral shaft long enough to breathe. "That was not listed as a separate exercise."
+
+**RECEPTIVE ENDURANCE INCLUDES ALL AVAILABLE OPENINGS.**
+
+"Convenient drafting."
+
+The machine waited.
+
+Nothing forced the next step. Cordelia could invoke the genuine-distress exit; Zephira knew the exact phrase and watched for any sign that embarrassment had become something else. Cordelia instead lowered her forehead to the support, breathed through the first intimate pressure and deliberately relaxed. The plug entered by degrees, broad enough to demand her attention and patient enough to make acceptance unmistakably hers.
+
+Her body changed around the arrangement. Fullness drew a low sound from her. The posture bar kept her shoulders open and breasts hanging free. Her thighs trembled where the ankle guides prevented them from closing. When both penetrative implements began moving in alternating rhythms, Cordelia's concentration fractured for the first time.
+
+**ORAL FUNCTION IDLE.**
+
+The service shaft touched her lips again.
+
+Cordelia glared at it.
+
+**THE WHORE WILL NOT NEGLECT ONE SERVICE BECAUSE ANOTHER IS DIFFICULT.**
+
+She opened her mouth.
+
+Zephira's own body answered the sight with an unwelcome pulse. It was not simply the access, though the machine left Cordelia exposed without ambiguity. It was the effort: the proud Sorceress taking one task, then another, refusing to retreat even while pleasure made her clumsy. Every time Cordelia recovered a rhythm, the machine changed one element and forced her to find herself again.
+
+Golden text recorded each lapse.
+
+**ORAL PRESSURE REDUCED DURING REAR STIMULATION.**
+
+**KNEES ATTEMPTED TO CLOSE.**
+
+**SUBJECT AROUSAL INCREASING FASTER THAN SERVICE QUALITY.**
+
+The observations possessed no malice. Cordelia supplied all the humiliation herself by understanding they were true.
 
 **THE WHORE HAS BEGUN SERVING HER OWN CLIMAX. CORRECT THE ERROR.**
 
@@ -250,6 +360,22 @@ By the time the system accepted one, Cordelia's full body strained against the p
 
 Zephira became aware that her own breathing had changed.
 
+The machine became aware too.
+
+**OBSERVER AROUSAL DETECTED. OBSERVER NOT ENROLLED. NO ACTION TAKEN.**
+
+Zephira went still.
+
+Cordelia turned her head as far as the collar permitted. The look she managed through damp hair contained exhausted delight.
+
+"Not one word," Zephira said.
+
+**OBSERVER SPEECH NOT REQUIRED.**
+
+Emily passed through a pillar to hide her face and failed because the rest of her was visibly laughing.
+
+Zephira considered leaving. The right remained hers. But departure now felt like a lie told to an indifferent machine—an attempt to preserve dignity after the mirror had already measured what watching did to her. She stayed where she was and folded her arms more loosely, no longer pretending the position concealed anything.
+
 The final service exercise placed Cordelia upon a low support with wrists still secured behind her and every sensitive part available to the machinery. She had to keep the service shaft in her mouth while articulated implements used her from behind and stimulated her swollen breasts. The machine offered no affection and no insults beyond the functional title it applied to every instruction.
 
 **THE WHORE WILL REMAIN USEFUL THROUGH ORGASM.**
@@ -263,6 +389,29 @@ Then it stopped.
 **SEVERE CURRICULUM PASSED.**
 
 Restraints opened in mechanical order. Cordelia lowered her arms carefully and sat upon the edge of the platform, flushed, damp and breathing as though she had survived a less respectable form of combat.
+
+The machine offered one final indignity. A narrow strip of white fabric emerged from the platform with a printed assessment.
+
+**SUBJECT FUNCTION: THE WHORE.**
+
+**SERVICE QUALITY: PASS.**
+**PRIDE RETAINED: EXCESSIVE BUT MANAGEABLE.**
+
+Cordelia accepted the slip because refusing it would have looked defensive.
+
+Zephira read it over her shoulder because asking permission would have looked interested.
+
+For a moment neither spoke. Cordelia's thighs still shivered faintly from the exercise. Marks from cuffs ringed her wrists in temporary pink. Her lips were swollen, her nipples flushed from mechanical attention, and the vulnerable softness after release sat uneasily beside the pleased intelligence returning to her eyes.
+
+"How do you feel?" Zephira asked.
+
+Cordelia considered the question rather than making a joke. "Like I spent two hours furious at an object for describing exactly what I asked it to make me."
+
+"That is not a physical answer."
+
+"Used. Tender. Extremely satisfied." She folded the assessment strip. "And annoyed by the satisfaction."
+
+Zephira understood the last part too well.
 
 A second program appeared upon the mirror.
 
@@ -408,6 +557,22 @@ No artifact answered.
 
 Anya consulted the active runes. "The first inscription is waiting."
 
+The jewelry introduced another rule when Cordelia tried to turn away from the stove.
+
+Every inscription slid across her skin.
+
+**HORNY SLUT** moved from beneath her navel to the upper curve of one breast. **DENIAL SLUT** traveled around her thigh until it faced Zephira. **WHORE FOR USE** enlarged across her stomach. The final label remained fixed above her sex, impossible to rotate out of view without turning the rest of her body toward someone else.
+
+"Adaptive legibility," Emily said.
+
+"It rearranges the writing when I hide it?"
+
+Anya watched the tracking runes. "It rearranges Beneficent Attire too."
+
+The few remaining straps shifted. Each attempted angle uncovered a different phrase. Cordelia could preserve no single modest view because the set defined modesty as an obstruction to authenticated admission.
+
+Zephira uncrossed her legs. The sight was funny until she imagined wearing the labels herself. Then the way they followed Cordelia's movement became intimate in a different direction. They were not declarations written once upon a passive body. They were accusations that insisted upon being seen.
+
 Cordelia sighed. "I am needy."
 
 Nothing happened.
@@ -437,6 +602,34 @@ The tattoo flickered and went dark.
 Ten minutes later, her voice had changed.
 
 The set had brought her close three times. Each approach left her wetter and more frustrated without providing even the physical reset of a muted climax. Her breasts had grown flushed around the rings. Her toes curled inside the absurd heels. Every time she looked down, the words waited upon her body with patient obscenity.
+
+The denial changed Cordelia in small increments before it changed her words.
+
+At first she shifted only to protect balance. Then the movements began following the jewel: a subtle tilt of the pelvis, an unconscious press into the narrow strap, the careful separation of her thighs when friction became more valuable than pride. The bracelets made every response visible. With her hands fixed behind her, nothing interrupted the long line from marked breast to marked belly to the wet evidence beneath the final inscription.
+
+Anya recorded pulse and magical output in a notebook. Her clinical attention did not remove warmth from her cheeks.
+
+"Is it painful?" she asked.
+
+"No."
+
+"Uncomfortable?"
+
+Cordelia inhaled as the jewel increased. "Not in the useful sense of that word."
+
+"Frustrating?"
+
+"Anya."
+
+"I require accurate observations."
+
+Cordelia's gaze dropped to **HORNY SLUT** upon her breast.
+
+"Yes," she said. "It is frustrating."
+
+The letters brightened but did not accept the partial admission.
+
+Anya wrote that down too.
 
 "I am a horny slut," she said again.
 
@@ -478,6 +671,22 @@ Anya adjusted nothing. Zephira offered no command. Emily did not explain.
 
 The artifact remained silent until Cordelia's own frustration supplied the meaning.
 
+The set brought her to the edge while the phrase remained unresolved.
+
+Cordelia's breathing broke into short, involuntary sounds. Her hips pressed forward; the heel enchantment locked her ankles safely upright while removing even the option of dropping to her knees. Pleasure gathered with the familiar physical certainty of orgasm—tightening abdomen, swollen clitoris, nipples aching around silver—and then encountered the inscription like a closed door.
+
+The jewel did not stop.
+
+For several seconds Cordelia hovered in the impossible interval, body attempting a release the magic would not authorize. Her thighs shook. Moisture ran along one inner leg into the sheer stocking. When the pressure finally eased, it left her more exposed to the next approach, not less.
+
+"That was cruel," Zephira said quietly.
+
+Cordelia opened her eyes. "I asked it not to go easy."
+
+Hearing herself say that made **VOLUNTEERED WHORE** flash once.
+
+The set had found a new trick: unprompted honesty could prepare a later label even when it did not satisfy the current one.
+
 "I am a whore for use," she whispered.
 
 The letters did not move.
@@ -491,6 +700,36 @@ The tattoo blazed.
 Cordelia moaned as reward poured through breasts and sex together. Her knees weakened. Beneficent heels kept her upright by becoming momentarily rigid at the ankles, an indignity the set performed without comment.
 
 The belt around her hips accepted **USE UNTIL SATISFIED** only after Cordelia admitted that another person's satisfaction could become exciting precisely because her own release remained withheld.
+
+It demanded proof.
+
+Silver words appeared between her shoulder blades where Cordelia could not read them.
+
+**NAME WHO MAY USE THE WHORE.**
+
+Zephira read the instruction aloud, then wished she had allowed Anya to do it.
+
+Cordelia went motionless except for the set's involuntary work upon her.
+
+"This setting concerns labels, not contracts," she said.
+
+Anya checked the runes. "The names authorize no action. It wants specificity."
+
+Cordelia looked first at Anya, whose careful hands had caught her more than once after magical experiments. Then at Zephira, whose blunt challenge had become increasingly difficult to separate from attraction. Emily floated at the edge of the study, excluded by the wording because she was not presently physical.
+
+"Anya may use me," Cordelia said. The jewel pulsed. "Zephira may use me. Within what we choose together."
+
+The hidden words shifted.
+
+**SAY WHAT MAKES THAT EXCITING.**
+
+Zephira's mouth went dry.
+
+Cordelia's answer came slowly. "They know me when I am dressed, armed and capable. Letting them see me like this does not erase that. It makes the helplessness real because they know exactly what I have chosen to put down."
+
+The belt inscription flared silver.
+
+Anya stopped writing for several breaths.
 
 The final inscription stayed dark.
 
@@ -536,6 +775,16 @@ The barrier vanished.
 
 Ninety minutes of denied pleasure arrived through the complete set at once. Cordelia arched against her bound arms. Her breasts lifted, inscriptions blazing across them; her thighs opened around the jewel; a long cry escaped her while orgasm shook through a body labelled with everything she had finally admitted. The jewelry continued until the last contraction loosened and her heels softened enough for Anya to catch her.
 
+Release did not feel like the Rose returning stored climaxes. Nothing had been stolen and preserved. This was one orgasm enlarged by everything Cordelia had been prevented from finishing: every failed threshold, every involuntary movement, every admission which had made the next one harder. It began low and sharp, then spread upward until the nipple rings made her breasts pulse with it and downward until her toes curled painfully against the open soles of the heels.
+
+Her mind did not go blank. It filled with the labels in her own voice.
+
+*Horny.* The jewel answered.
+
+*Denied.* Her body clenched harder.
+
+*Volunteered.* That was the word which broke the last of her composure. Cordelia cried out again and sagged into Anya while the set made her feel the chosen truth of it through every contraction.
+
 The tattoos faded.
 
 Beneficent Attire returned the blue robe in modest stages. Bracelets released Cordelia's wrists. The choker dissolved last, restoring elemental magic and leaving her supported against Anya's shoulder with black hair stuck to her cheeks.
@@ -545,6 +794,28 @@ Anya guided her to the padded bench.
 Zephira handed her water.
 
 Cordelia drank half the cup before speaking.
+
+Her body continued answering the vanished set. Small contractions moved through her abdomen. Bare feet flexed against the rug as though still searching for balance in heels no longer present. When Anya wrapped a wool blanket around her shoulders, the scrape of fabric across nipples recently occupied by silver made Cordelia wince and then laugh at herself.
+
+"Sensitive?" Anya asked.
+
+"Temporarily."
+
+"Embarrassed?"
+
+Cordelia looked at Zephira over the rim of the cup. "Durably."
+
+Anya sat beside her rather than continuing to observe from above. "Did the labels feel false?"
+
+"No. That was the problem." Cordelia drew the blanket closer. "They were incomplete. Each described something true inside the chosen scene and phrased it as though it were the whole of me. I kept wanting to defeat them by adding context."
+
+"And the set required you to stop using context as armor," Zephira said.
+
+Cordelia's eyes narrowed. "You have become insufferably perceptive for someone interested only in calligraphy."
+
+Zephira could not deny it. Watching the Sorceress accept the filthy labels had not made Cordelia seem smaller. The admissions had revealed appetite beneath dignity without weakening either. Zephira had felt arousal each time the set forced the two to coexist: heroic Cordelia, intelligent Cordelia, and Cordelia marked **VOLUNTEERED WHORE**, all equally real.
+
+That complexity made the severe setting dangerous in a way raw stimulation was not. It offered no fantasy of becoming another person. It made a woman speak aloud the part of herself she normally kept conditional and private.
 
 "No one," she said, "will mention the final phrase again."
 
@@ -632,6 +903,18 @@ Ivory rope removed her wrap in one efficient pull. It crossed above and beneath 
 
 Cordelia remained standing for only long enough to understand the arrangement.
 
+The severe protocol did not merely bind her. It conducted an intake examination.
+
+Rope tightened briefly around each wrist, loosened, then returned at the exact pressure her pulse tolerated comfortably. Lines beneath her breasts lifted and released until the clasp had measured how much compression made their soft weight rise around the rope without pain. The strand between her thighs moved once over her clitoris, received an immediate bodily answer and settled a fraction higher.
+
+**SERVICE MOTIVATION: ELEVATED. SELF-DIRECTED PLEASURE: RESTRICTED.**
+
+"It is making assumptions," Cordelia said.
+
+Atma glanced at the visible moisture the assessing strand had already spread. "It is collecting data."
+
+The Coil added a narrow leash to Cordelia's throat ring. Nobody held the other end. It passed through a floor guide and drew her forward whenever she attempted to retreat from the assigned recipient. The absence of a hand made it stranger. She could not appeal to a person's sympathy or playfulness; the rope itself maintained the humiliating distance it considered efficient.
+
 The Coil drew her onto her knees before Charsi.
 
 Zephira made a thoughtful sound.
@@ -700,6 +983,20 @@ Cordelia stopped relying upon memory. She listened to Charsi's breathing, felt t
 
 Charsi came with a surprised cry and both heels lifting from the floor. Cordelia continued through every contraction until the smith's hand relaxed.
 
+The Coil did not credit the release immediately.
+
+**RECIPIENT AFTERCARE INCOMPLETE.**
+
+Cordelia lifted her head. "Now it wants aftercare?"
+
+Charsi, still breathing hard, said, "I wouldn't object."
+
+The rope guided Cordelia closer again. She kissed the sensitized skin with gentler pressure, used her tongue only where Charsi's thighs relaxed rather than tightened and waited until the smith's breathing settled. Charsi's callused fingers stroked through Cordelia's hair, no longer guiding, simply grateful.
+
+Only then did the first petal open.
+
+Zephira shifted against the wall. The extra requirement changed the meaning of competence. The artifact was not satisfied by extracting a climax as proof of technique. It demanded attention before, through and after it—service measured by the recipient's experience rather than an orgasm alone.
+
 One black petal opened silver.
 
 The Coil released Cordelia's right wrist.
@@ -720,6 +1017,26 @@ The Coil accepted that. Cordelia used her freed hand slowly, learning rather tha
 
 The rope at Cordelia's sex pulsed whenever Charsi approached release. It ensured Cordelia felt every success without allowing her to take any satisfaction from it. By the time Charsi came around her fingers, Cordelia was trembling harder than the woman she served.
 
+Cordelia's denial did not remain abstract. Each pulse created a little rise of pleasure and removed its destination. Her clitoris rubbed against the tightened crossing whenever her hand found a better rhythm. The Coil converted Charsi's quickened breathing into vibration along the rope framing Cordelia's breasts. Success made her nipples ache; greater success made the strand between her thighs throb.
+
+She could not touch herself with either hand—one remained secured and the other worked between Charsi's thighs—but her body began chasing the artifact anyway. Hips rolled against the crossing. Bound shoulders pulled back. Her full breasts pressed outward between ivory lines.
+
+The clasp displayed:
+
+**SUBJECT ATTENTION DIVIDED. TECHNIQUE DECREASING.**
+
+Cordelia froze, mortified by the visible assessment.
+
+Charsi caught her gaze. "You can slow down."
+
+"The rope will grade me."
+
+"I mean for me. Slow down for me."
+
+The distinction returned Cordelia's attention to the woman beneath her hand. She abandoned the rhythm which had been producing the most friction against her own restraint and used the one Charsi's body actually requested. The Coil rewarded the correction by intensifying its pressure—enough to make Cordelia gasp, not enough to let her finish.
+
+The unfairness excited her so sharply that she nearly lost technique again.
+
 The second petal opened.
 
 Her left wrist came free. The Coil immediately joined both ankles behind her and turned her toward Atma.
@@ -738,6 +1055,22 @@ The rope between Cordelia's thighs tightened in immediate disagreement.
 
 Atma laughed against her mouth.
 
+The kiss became the third exercise's first lesson. Atma did not let Cordelia hide inside efficient service. She kissed slowly, accepting Cordelia's mouth as pleasure rather than merely technique, and drew the bound Sorceress across her lap until the rope harness pressed their breasts together.
+
+Cordelia's body softened against hers before pride caught up. The Coil felt it. Its leash shortened, holding them chest-to-chest while the strand between Cordelia's thighs maintained denial.
+
+"You look troubled," Atma murmured.
+
+"I am being graded while naked in your lap."
+
+"You have faced worse tribunals."
+
+"None of them kissed me."
+
+Atma did again.
+
+Zephira watched Cordelia's composure change beneath tenderness rather than insult. Machinery could force posture and deny release; Atma's ordinary warmth made the exposure matter. Cordelia could not dismiss her as a prop in the artifact's curriculum. She was a friend receiving the service, seeing every helpless response and liking the woman inside it.
+
 The third requirement allowed breasts, lips and hands but forbade direct oral repetition of Charsi's first exercise. Cordelia learned Atma through slow contact: kissing throat and breasts, rolling one nipple while her other hand moved between warm thighs, using the weight of her own bound body when Atma pulled her nearer.
 
 Each time Cordelia began chasing the pressure of the rope against herself, the Coil withdrew it. Each time attention returned fully to Atma, it supplied a brief pulse of reward. Pleasure became evidence of correct service rather than property Cordelia could pursue.
@@ -751,6 +1084,34 @@ Cordelia's mouth rested against one dark nipple. "I dislike its pedagogy."
 "Your body appears less critical."
 
 The third petal opened when Atma came beneath Cordelia's hand, her pleasure quieter than Charsi's and no less complete. The Coil released Cordelia's ankles.
+
+Again it required aftercare. This time Atma asked Cordelia to remain against her, breathing together while the older woman's pleasure subsided. The Coil loosened its leash but kept Cordelia's wrists behind her and the intimate strand taut. She had to rest without covering herself or taking the touch she desperately wanted.
+
+Atma brushed her thumb across Cordelia's flushed cheek. "How close are you?"
+
+"The question is not relevant to your satisfaction."
+
+"Very close, then."
+
+Cordelia's bound hands flexed. "The Coil is making me responsive whenever either of you is pleased."
+
+"And how does that feel?"
+
+The severe protocol projected a new line before Cordelia could evade.
+
+**SUBJECT MAY ANSWER HONESTLY OR ACCEPT INCREASED DENIAL.**
+
+"It feels humiliating," Cordelia said.
+
+The rope waited.
+
+"And exciting. Their pleasure is making me desperate for my own, even though every attempt to chase it lowers my grade."
+
+The clasp flashed acceptance. It rewarded honesty with a deep pulse that brought Cordelia to the edge and stopped.
+
+She shook in Atma's arms.
+
+"Extremely exciting," Cordelia amended.
 
 One petal remained.
 
@@ -772,6 +1133,18 @@ Every rope loosened.
 
 The denial vanished with no orgasm attached. Cordelia remained intensely aroused, free and suddenly capable of choosing what happened next.
 
+For several seconds freedom felt less comfortable than restraint.
+
+Her released hands hovered beside her body. She could touch her swollen nipples, slide one hand between wet thighs and finish what four exercises had built. Charsi and Atma would not object. The Coil no longer prevented it.
+
+Yet doing so immediately would turn their pleasure back into a path toward hers, exactly the habit the severe lesson had exposed. Cordelia lowered her hands instead and let the need remain inside her—hot, frustrating and chosen now that no artifact enforced it.
+
+Atma recognized the decision. Charsi did too.
+
+Neither praised her. Praise would have transformed the choice into another reward.
+
+Zephira saw the difficulty of it in the tremor along Cordelia's thighs and the slow breath she used to regain control. Heroic self-sufficiency had not meant refusing help. It had meant believing she could pass through every intimate encounter without being changed by another person's pleasure. The Coil had made that pretense impossible for an afternoon.
+
 She stayed kneeling for several breaths.
 
 Then Charsi held out the discarded black wrap. Cordelia accepted it and dressed with what dignity the position allowed.
@@ -791,6 +1164,26 @@ Zephira answered from the wall.
 Cordelia drank, still warm with unspent desire. "You have become very comfortable observing."
 
 "Someone must preserve the research record."
+
+Charsi found bread, cheese and the remains of a spiced stew downstairs. The four living women ate in the cleared room because Cordelia did not yet want to walk through the public yard. She sat cross-legged beneath the black wrap with the cup held in both hands, rope marks slowly fading around breast and waist.
+
+Serving had left stranger sensations than restraint. Her jaw ached pleasantly. Her fingers remembered the exact changes in Charsi's breathing. Atma's taste remained upon her tongue. Whenever either woman shifted nearby, Cordelia felt a brief irrational readiness to resume the assignment—as though their continuing existence meant some need remained for her to satisfy.
+
+"Temporary association," Emily said after Cordelia described it. "It will settle."
+
+"I know."
+
+"You sound disappointed."
+
+"I sound hungry."
+
+Charsi passed her more bread.
+
+Zephira watched Cordelia eat. The Sorceress had chosen not to take immediate release, but denial no longer controlled her. That made every restless movement more intimate. She was not displaying endurance for a machine. She was simply sitting among friends while her body remained aroused by what she had done for them.
+
+Atma touched Cordelia's shoulder when she rose to leave. Cordelia leaned into the touch for one brief second, then smiled with none of the severe curriculum's trained obedience.
+
+The artifact had attacked self-sufficiency without proving dependence. It had shown that receiving another woman's pleasure could matter deeply and then returned the choice of what to do with that knowledge.
 
 Emily pointed toward the Black Rose.
 
@@ -844,6 +1237,12 @@ Zephira faced herself from slightly below, breasts lifted by her opened shoulder
 
 She stared.
 
+The image possessed a clarity ordinary mirrors had never offered. It showed the shallow impressions where cuffs met her wrists, the pale line of an old spear scar at one hip and the soft rise of flesh above the waist band when she drew breath. Nothing was beautified, but nothing was made ugly either. The Glass's cruelty came from refusing the compromises of self-observation. Zephira could not straighten only when she liked the result, turn away before an unflattering angle settled or decide that an involuntary response had probably been less obvious than it felt.
+
+She saw all of herself at once: the warrior's trained shoulders, the woman's full breasts, the little tension of embarrassment around her mouth and the unmistakable excitement already hardening both nipples beneath the desert heat.
+
+The caption did not replace those things. It selected the interpretation she least wanted to admit.
+
 "That is not factual," she said.
 
 A second line appeared.
@@ -891,6 +1290,42 @@ It magnified the hardened points of her breasts.
 Cordelia looked toward the open window. Desert afternoon pressed against the shutters.
 
 **THE SLUT IS LYING.**
+
+The Glass demonstrated its second severe function.
+
+Beside Zephira's live reflection, it displayed a translucent image from thirty seconds earlier. Past Zephira stood with nipples only beginning to rise and thighs still dry beneath the narrow cloth. Present Zephira was warmer, more open and visibly affected.
+
+Between them appeared:
+
+**BEFORE BEING CALLED A BOUND SLUT.**
+
+**AFTER BEING CALLED A BOUND SLUT.**
+
+"That proves time passed," Zephira said.
+
+A pulse trace joined the images, rising sharply beneath each caption she had disputed.
+
+**AROUSAL INCREASE CORRELATES WITH DEGRADING OBSERVATION.**
+
+"Correlation is not causation."
+
+Emily tilted her head. "You have been spending time with Drognan."
+
+"Drognan knows what words mean."
+
+The Glass placed a third line across the bottom.
+
+**THE BOUND SLUT IS USING SCHOLARSHIP TO AVOID SAYING SHE LIKES IT.**
+
+Cordelia finally laughed aloud.
+
+The sound changed something inside Zephira. Humiliation had been private while only the mirror described it. Cordelia's laughter gave it a witness—not cruel laughter, but warm delight at seeing Zephira argue with a device that had already won. Heat moved from Zephira's face through her chest and settled lower, intensifying the very evidence under dispute.
+
+The comparison updated.
+
+**AROUSAL INCREASE CONTINUES.**
+
+Zephira swore at it.
 
 Zephira's laugh arrived despite her. Laughter moved her breasts. The Glass followed the motion in unnecessary detail.
 
@@ -940,7 +1375,39 @@ Zephira shut her eyes.
 
 Cordelia's quiet laughter was worse than the first.
 
-The hour progressed by stripping excuses rather than clothing. When Zephira flexed her shoulders to display the strength held by the cuffs, the Glass called her **A PRETTY BOUND SHOW-OFF**. When she relaxed and allowed rope to settle gently into the softness around her breasts and waist, it displayed **THE SLUT IS SETTLING INTO HER PROPER POSITION**. When she asked how much time remained, it answered:
+The hour progressed by stripping excuses rather than clothing. When Zephira flexed her shoulders to display the strength held by the cuffs, the Glass called her **A PRETTY BOUND SHOW-OFF**. When she relaxed and allowed rope to settle gently into the softness around her breasts and waist, it displayed **THE SLUT IS SETTLING INTO HER PROPER POSITION**.
+
+It also learned where she looked.
+
+A tiny silver mark appeared wherever Zephira's gaze lingered upon her own reflection. At first the marks gathered at the restraints: wrist cuffs, ankle lines, the band holding her hands low behind her back. Then one appeared on the profile view of her breasts. Another followed the curve where rope compressed the yielding softness at her waist. The longest remained over the elevated angle between her spread legs.
+
+The Glass assembled the results.
+
+**SUBJECT MOST FREQUENTLY INSPECTS THE PLACES RESTRAINT MAKES HER HELPLESS.**
+
+Zephira deliberately stared at the pile of armor instead.
+
+The mirror kept her body in view and added a small inset of bronze, leather and spear lying safely beyond reach.
+
+**THE AMAZON IS CHECKING WHETHER HER DIGNITY IS STILL OVER THERE.**
+
+"It is," Zephira said.
+
+**UNVERIFIED.**
+
+The answer made her laugh again. This time she felt her body settle into the harness as the sound passed through her. The waist rope pressed more visibly into soft flesh. Bound wrists shifted against the small of her back. Her breasts swayed free above the token strip of red cloth.
+
+She liked the image.
+
+The realization arrived without permission and carried more force than any caption. Zephira had always loved seeing herself tied—loved how restraint framed strength without destroying softness, how an athletic body could become decorative, cute and useless by its owner's design. The severe Glass did not create that pleasure. It removed the private courtesy of pretending she admired only the technical pattern.
+
+**THE BOUND SLUT LIKES HOW PATHETIC SHE LOOKS.**
+
+Zephira's breath stopped.
+
+The caption was harsher than the truth she would have chosen and close enough to make her wet.
+
+When she asked how much time remained, the Glass answered:
 
 **THE DENIAL SLUT HAS ASKED ABOUT RELEASE.**
 
@@ -957,6 +1424,40 @@ The caption acquired a numeral.
 Cordelia leaned against the bedpost. "I recommend no further administrative appeals."
 
 At forty minutes, Zephira's composure had become a performance undertaken for the Glass. Every attempt to appear unaffected created a new caption. Every involuntary shift provided evidence. The artifact never invented a desire she did not possess. It merely described each one with language she would never have chosen.
+
+The Glass began preserving only her failures.
+
+It did not record them beyond the room; ordinary mode's privacy remained absolute. Instead, four small panes appeared around the live image and replayed brief moments within the accepted hour: Zephira jerking when the restraints first closed, her nipples hardening after Cordelia called her beautiful, the betrayed roll of her hips against the cloth, the instant her knees strained inward and failed.
+
+No heroic stillness appeared. No composed profile. The severe setting curated only the evidence she would have omitted.
+
+**SELECTED MOMENTS OF LOST COMPOSURE.**
+
+"You have omitted the other thirty-nine minutes."
+
+**THE OTHER MINUTES WERE LESS INFORMATIVE.**
+
+Cordelia moved beside the mirror and studied the four loops. "This one is lovely."
+
+She indicated the moment Zephira had realized her legs could not close.
+
+Zephira pulled against her wrists. The live pane immediately created a fifth candidate.
+
+"You are helping it."
+
+"You look strong when you test the cuffs."
+
+"It calls me pathetic."
+
+Cordelia's expression softened without losing playfulness. "Those are not opposites here. You arranged a strong body so it could not do anything useful. That is the point, isn't it?"
+
+Zephira looked at herself—shoulders capable of drawing a war bow, thighs built by a lifetime of travel, both made helpless by a few precisely placed lines she had chosen.
+
+The Glass waited.
+
+"Yes," she said.
+
+No caption appeared. The simple admission required none.
 
 The worst caption appeared after Cordelia approached and asked permission to touch her.
 
@@ -978,6 +1479,44 @@ Zephira's hips rolled against the narrow cloth.
 
 **THE WHORE IS USING HER RESTRAINTS TO RUB HERSELF.**
 
+The Glass changed the comparison panes.
+
+Now one showed Zephira before Cordelia touched her and another showed her after. The difference was embarrassingly immediate: nipples darker and harder, chest rising faster, thighs glistening around the edge of the narrow cloth.
+
+**ONE TOUCH PRODUCED MEASURABLE LOSS OF COMPOSURE.**
+
+Cordelia's hand remained still upon her breast. "May I do more?"
+
+The question made Zephira feel the restraints all over again. She could refuse. Cordelia would step back. The hour would still end, and the Glass would have nothing more intimate to display than what her own body produced in waiting.
+
+Or she could nod and let the mirror describe exactly how badly she wanted a friend's hands while unable to use her own.
+
+Zephira nodded.
+
+Cordelia's other hand settled at her waist, following the rope where it sank gently into softness. She traced downward across the strong abdomen and along one inner thigh. The touch stopped above the ankle line and returned slowly. Each pass approached the wet cloth without reaching it.
+
+Zephira's hips moved after the retreating fingers.
+
+**THE WHORE IS FOLLOWING THE HAND.**
+
+"I am adjusting my balance."
+
+The plate displayed weight distribution. Her balance had been stable.
+
+**THE WHORE IS LYING AGAIN.**
+
+Cordelia leaned close enough that Zephira felt breath beside her ear. "You could simply enjoy it."
+
+"I am enjoying objecting."
+
+"The Glass agrees."
+
+New lettering filled the mirror:
+
+**HUMILIATION RESPONSE: STRONG. AROUSAL RESPONSE: STRONGER.**
+
+Zephira's denial became a moan when Cordelia pinched the nipple already swollen beneath her thumb.
+
 "I am going to break that mirror."
 
 "After the hour," Cordelia said.
@@ -985,6 +1524,16 @@ Zephira's hips rolled against the narrow cloth.
 "Immediately after."
 
 The final ten minutes were the least dignified. Cordelia touched only within the permission Zephira had given—breasts, stomach, inner thighs above the cuffs—never providing enough direct pleasure for release. The Glass made every reaction public within the private room.
+
+It increased the lettering before Zephira had technically asked.
+
+Captions expanded until they crossed her reflected body like declarations painted over a captured heroine. **THE SLUT IS TRYING NOT TO BEG** stretched from one side of the mirror to the other. **THE WHORE WANTS MORE** settled directly across the live image of her open thighs. The words hid nothing; the glass rendered them translucent enough that every response remained visible beneath the insult.
+
+The scale of them affected Zephira differently. Small captions had felt like commentary. These felt like identity assigned to the entire image. She could see her own face above **BOUND SLUT**, her breasts beneath **ON DISPLAY**, Cordelia's hands moving through the lettering as if the labels occupied the room with them.
+
+She hated how perfectly the words suited the composition.
+
+She hated more that the hatred itself had become part of the pleasure.
 
 **THE SLUT IS TRYING NOT TO BEG.**
 
@@ -1017,6 +1566,14 @@ Cordelia handed her the wrap.
 "Most of it was directed at the Glass."
 
 Zephira dressed in silence.
+
+Ordinary cloth felt oddly evasive. The breast wrap covered the nipples the Glass had enlarged; the loincloth widened and concealed the wet evidence it had captioned; leather and bronze restored the familiar silhouette of an Amazon who could answer observation with a spear.
+
+Her body did not accept the disguise immediately. The first buckle dragged across a place Cordelia had touched and made her inhale. The second pressed over a shallow cuff mark. Zephira could still see the severe captions in memory, arranged across every angle armor now hid.
+
+Cordelia did not mention them. She folded the posture plate, checked that the Glass had retained no images beyond its live mirror and placed the Black Rose in its case. The practical aftercare restored privacy without pretending nothing had happened.
+
+That courtesy made Zephira want to be seen again.
 
 At the door, she looked back.
 
@@ -1080,6 +1637,24 @@ The Pearl woke.
 
 It began gently, a warm vibration precisely placed and patient enough to let Zephira believe discipline mattered. She remained still. The platform showed **1:30**. The first fifteen minutes passed with only the slow accumulation of pleasure and the growing awareness that every possible movement had already been considered by the restraints.
 
+The Pearl tested her before offering odds.
+
+Its vibration wandered through patterns too subtle to predict: a broad hum which warmed without urgency, a narrow pulse that made her clitoris twitch beneath the harness, a sequence timed to the involuntary tightening of her abdomen. Whenever Zephira began anticipating a rhythm, it shifted by half a beat. Her body could learn nothing useful except responsiveness.
+
+The restraint plate amplified that lesson. Flexing her calves drew the ankle lines taut. Lifting her head tightened the support beneath her breasts. Moving her hips caused the waist belt to return her to the exact center of the Pearl. The apparatus did not punish escape. It converted every attempted adjustment into a reminder that escape had not been included.
+
+Cordelia turned one page without reading it.
+
+"You are staring," Zephira said.
+
+"I am available if you need anything."
+
+"Your eyes are not a medical service."
+
+"No. They are recreational."
+
+The Pearl produced a sharp pulse while Zephira was deciding how offended to appear. Her breath caught, and Cordelia's smile made the resulting heat worse.
+
 At twenty-three minutes, the Pearl changed rhythm.
 
 Zephira's breath shortened. Her hips attempted to follow before the belt stopped them. The vibrator responded to resistance, increasing whenever her wrists pulled or her thighs tried to narrow. She closed her eyes and held still, but stillness merely gave the Pearl a steadier target.
@@ -1111,6 +1686,18 @@ The timer rose from **1:06** to **1:36**.
 The Pearl stopped.
 
 Zephira stared at the ceiling while the denied edge receded into frustrated heat.
+
+The failed wager left a receipt. A thin pink band appeared around Zephira's right thigh with **ONE BAD DECISION** written along it in tiny Horadric script.
+
+She lifted her head. "Captions were forbidden."
+
+Emily inspected the band. "This is a wager receipt."
+
+"It is writing on me."
+
+"The Pearl is accounting."
+
+The mark contained no severe judgment beyond the count. That factual restraint made it more humiliating. It would not call her foolish. It would simply add another band whenever she proved it.
 
 "Statistically defensible," Cordelia said.
 
@@ -1151,6 +1738,24 @@ The Pearl surged.
 Zephira cried out and arched against the waist belt. The response lasted only five seconds, long enough to bring release into absolute certainty, then stopped before the final threshold. Her bound hands closed around empty air beside her head.
 
 Cordelia set the book aside entirely.
+
+A second wager receipt formed upon Zephira's left thigh.
+
+**THREE GAMBLES. ZERO RELEASES.**
+
+"That is not one decision," Zephira said.
+
+"Summary invoice," Emily replied.
+
+Zephira's body remained suspended just below release while she argued about bookkeeping. The absurdity intensified the humiliation. She had entered a mathematically explicit trap, made every choice herself and now wore the running total around spread thighs while Cordelia watched.
+
+The Pearl resumed at its stronger setting before she recovered. Pleasure returned too quickly. Zephira's body remembered the interrupted edge and climbed toward it with humiliating eagerness, hips pressing upward into a belt designed to stop them.
+
+She could feel moisture spreading beneath the lower harness. She could see Cordelia's attention move there and back to her face with deliberate courtesy. Being observed in desperation made the next gamble feel more necessary: a chance to regain control through immediate release, to prove she had not merely made herself helpless for the pleasure of worsening it.
+
+That desire was irrational.
+
+It was also far hotter than probability.
 
 "That looked severe."
 
@@ -1196,7 +1801,67 @@ The session became less reasonable from there.
 
 Zephira declined the fifth gamble and took pride in the decision for almost a minute. The Pearl interpreted her resistance through wrist tension and delivered a sequence so precise that she begged it to offer the runes again before the ordinary interval had elapsed. It did not. Machinery could not be hurried by desperation.
 
+The begging earned no ordinary wager, but it activated the Pearl's second severe trick.
+
+**EARLY OPPORTUNITY AVAILABLE IN EXCHANGE FOR BLINDED SELECTION.**
+
+The small mirror offered four identical blank circles.
+
+Cordelia read the condition. "Same outcomes. No colors. You may choose now instead of waiting twelve minutes."
+
+"So the visible runes never mattered."
+
+"They mattered to your theories."
+
+Zephira looked at the blank choices. Immediate selection had become available precisely because she had begged for it. Accepting would convert desperation into a worse wager. Declining meant twelve uninterrupted minutes beneath the heightened Pearl.
+
+"No," she said.
+
+The circles vanished.
+
+For two minutes she felt proud.
+
+At the third, the Pearl found a rising pattern which made her pull hard enough to shake both wrist cuffs.
+
+"Bring them back."
+
+**REQUEST MUST BE PRECISE.**
+
+Zephira stared at the ceiling. "Please let me make the humiliating blind wager."
+
+Four blank circles returned.
+
+Cordelia put a hand over her own eyes, either from sympathy or delight.
+
+Zephira touched the second circle with her toe.
+
+**POSITION ESCALATED.**
+
+Another accounting band appeared:
+
+**BEGGED FOR WORSE ODDS. RECEIVED WORSE POSITION.**
+
+"Receipt," Emily reminded her before she could object.
+
 The fifth gamble eventually brought another position escalation. Her ankles drew toward her thighs in a supported frog tie while knees remained held apart. Her wrists moved from beside her head to a low rear connection at the small of her back, routed individually around her hips before being joined. The platform tilted her forward onto a padded chest support. Full breasts hung beneath her; rounded hips rose behind; the Pearl remained secured where every helpless shift pulled it more firmly against her.
+
+The transition itself took nearly a minute. Each wrist released separately, traveled through a guided cuff along the side rail and locked behind her only after the shoulder had turned safely. Each ankle support folded toward its thigh and secured before the next moved. Zephira could feel herself becoming more helpless one limb at a time. At three points she retained enough mobility to stop the change through the genuine exit. At all three she remained silent.
+
+When the final waist support tilted, gravity settled her breasts downward through the open harness. Their full weight swayed beneath her while the platform raised her hips. The posture felt explicit without anyone touching her. Her body had become the visual receipt for her own gambling.
+
+Cordelia's circuit around the plate was careful, but Zephira felt each look like contact.
+
+"Pretty?" Zephira asked before she could decide against it.
+
+Cordelia paused. "Very."
+
+"Helpless?"
+
+"Completely."
+
+The Pearl pulsed harder at the second answer.
+
+Zephira hid her face against the support and discovered that humiliation could make a compliment feel almost like penetration.
 
 Cordelia walked around the plate to verify the transition.
 
@@ -1260,11 +1925,61 @@ The next runes appeared.
 
 She chose again.
 
+Her seventh wager increased stimulation once more. The eighth added twenty minutes and required her to select the ninth with the toes of her other foot, now held farther from the display. By then five slim accounting bands circled her thighs and waist, each recording a decision in language too factual to dispute.
+
+**SELECTED RELEASE WHILE UNABLE TO HOLD FOOT STEADY.**
+
+**ADDED TIME TO A TERM ALREADY EXTENDED TWICE.**
+
+**DECLINED SAFE WAITING. REQUESTED ANOTHER CHANCE.**
+
+Cordelia read none aloud. She did not need to. Zephira could see them reflected in the small display whenever the Pearl brought her close enough to make her lift her head.
+
+The ninth wager offered one new option.
+
+**SURRENDER ALL FUTURE GAMBLES. RECEIVE GUARANTEED RELEASE AT END OF CURRENT TERM.**
+
+It was not immediate release. It was certainty: no further choices, no more opportunities to rescue herself early, no additional chances to make the predicament worse. All she had to do was admit that judgment had become unreliable and give the machine authority over the remainder.
+
+The other three outcomes remained hidden.
+
+"That is the sensible selection," Cordelia said.
+
+Zephira's foot hovered over the surrender rune.
+
+Choosing it felt more humiliating than losing. A bad result could still be blamed on probability. Surrender meant acknowledging that the only winning move left was to stop trusting herself.
+
+The Pearl held her close. Bound wrists strained. Frog-tied legs trembled in their supports.
+
+Zephira pressed the rune.
+
+**JUDGMENT VOLUNTARILY SURRENDERED.**
+
+Every other symbol disappeared. The final timer stabilized. The accounting bands merged into one sentence across her lower abdomen:
+
+**THE SUBJECT KEPT GAMBLING UNTIL THE MACHINE TOOK HER CHOICES AWAY.**
+
+Zephira read it upside down in the mirror.
+
+She had never felt more foolish.
+
+The Pearl rewarded surrender with its slowest, deepest rhythm.
+
+She had rarely felt more aroused.
+
 Hours later, the base term and every extension finally expired. Zephira had not found release among the runes. The Pearl stopped denying her and delivered the accumulated stimulation without ceremony.
 
 Orgasm moved through her suspended body in long, helpless waves. The harness held her while thighs strained against the frog tie and toes curled behind her. Cordelia kept one steadying hand against her shoulder until the final tremor passed.
 
 Restraints lowered her carefully onto the padded platform. Wrists released. Ankles separated. Zephira rolled onto one side, breathing against her own braid.
+
+The accounting bands faded one at a time. **JUDGMENT VOLUNTARILY SURRENDERED** vanished last, leaving ordinary bronze skin where the Pearl had summarized her evening.
+
+Zephira missed the words immediately.
+
+Not because they were flattering. They were the opposite. Yet they had made the arc of the game visible: confidence, worsening odds, desperation, and the final relief of giving up choices she could no longer use sensibly. Without the bands she looked merely spent. With them she had looked documented.
+
+She decided not to examine why that distinction mattered until after water.
 
 Cordelia waited before offering water.
 
@@ -1326,6 +2041,14 @@ Emily reclined in the air above the bed. "The historical distinction concerns du
 
 Zephira placed the gag between her teeth. Cordelia drew the padded straps beneath the thick blonde braid, checked breathing and fitted the final clasp. Speech became warm pressure and muffled consonants.
 
+Courteous Silence adjusted itself to her anatomy. The padded ball softened against tongue and teeth, filled her mouth without straining the jaw and opened narrow air channels whenever she inhaled. Silver side rings settled before her ears. A slim band passed beneath her chin, not forcing her head upward but making every attempt to turn away visible through the pull of leather.
+
+The ordinary gag had always felt like absence: speech removed, privacy protected by the impossibility of explaining herself. Severe mode made silence into a performance the device intended to grade. Zephira could already feel the small sensor against the base of her tongue, waiting for vibrations she would not willingly make.
+
+The Appraising Glass remained packed. There would be no filthy captions, no alternate angles and no visible proof of failure.
+
+That did not help. Cordelia sat close enough to hear everything.
+
 Cordelia asked the established questions.
 
 Pain?
@@ -1370,6 +2093,24 @@ She produced a theatrical cry.
 
 **PERFORMED RESPONSE REJECTED.**
 
+The gag played the rejected sound back to her through the silver side rings.
+
+It did not project into the room or preserve a recording. Vibration traveled directly through her jaw, a perfect private echo of the theatrical cry she had manufactured. Heard from inside her own bones, it sounded controlled, almost elegant and completely false.
+
+Then Courteous Silence supplied a reference tone: not a woman's voice, only an abstract rising note indicating the degree of lost composure it required.
+
+Zephira stared at Cordelia.
+
+"It wants sincerity," Cordelia said.
+
+Zephira made a scornful sound.
+
+The gag replayed that too.
+
+**ANGER CLASSIFIED. COUNTDOWN UNAFFECTED.**
+
+She understood the trap more completely. It was not enough to choose a degrading noise. The artifact distinguished noises chosen by pride from noises pulled through pride by the body. Zephira could no more order herself to lose composure than she could deliberately surprise herself.
+
 Cordelia smiled. "It has met you."
 
 Zephira answered through the gag with a statement whose meaning survived perfectly.
@@ -1377,6 +2118,20 @@ Zephira answered through the gag with a statement whose meaning survived perfect
 The meter did not move.
 
 Ten minutes passed without the countdown beginning.
+
+Embarrassment accumulated before pleasure did.
+
+Cordelia had heard Zephira shout across battlefields, laugh loudly in taverns and curse while resetting a dislocated finger. None of those memories felt intimate. The sounds Courteous Silence wanted belonged to another category: small, helpless noises made because sensation had become more important than presentation. Zephira had produced them alone. Cordelia had heard some through other gags. But never had a device isolated them as the only response worth counting.
+
+Her desire to withhold the sounds became part of their erotic charge.
+
+She imagined the timer beginning, Cordelia recognizing precisely what had crossed the threshold and Emily's infuriatingly scholarly expression. Heat spread beneath the red bands over her breasts. The Pearl felt it and strengthened by a fraction.
+
+The ring displayed:
+
+**ANTICIPATORY AROUSAL DETECTED. VOCAL RESPONSE ABSENT.**
+
+There was no Glass, yet the gag had found a way to make silence accusatory.
 
 The Pearl responded to restraint tension. Whenever Zephira pulled her wrists or tried to narrow her knees, vibration strengthened. The obvious solution was stillness. Stillness made every pulse land upon the same increasingly sensitive point. Her breathing quickened despite disciplined effort.
 
@@ -1410,6 +2165,24 @@ The timer changed to **0:29**.
 
 Relief arrived with humiliation attached. The accepted sound had not been one Zephira chose to perform. It had been pulled from her by simultaneous pleasure and recorded as sufficiently undignified.
 
+Courteous Silence replayed it once through her jaw.
+
+The sound was breathy, startled and unmistakably hers. It contained none of the controlled resonance she used to call commands across a field. Cordelia could not hear the replay, but she had heard the original. Zephira watched recognition remain warm in the Sorceress's eyes.
+
+The gag classified the response.
+
+**CATEGORY: NEEDY. AUTHENTICITY: ACCEPTABLE.**
+
+Zephira strained against her cuffs with renewed outrage.
+
+The Pearl converted the tension into a stronger pulse.
+
+Another needy sound escaped.
+
+The timer advanced two seconds.
+
+Humiliation and practical success aligned too perfectly. The worse she sounded, the sooner she would be free; the sooner freedom approached, the more the necessity of making those sounds excited her. Courteous Silence had turned lost composure into the only competent strategy.
+
 She recovered control.
 
 The timer reached **0:27**.
@@ -1440,9 +2213,69 @@ Emily admired the precision of her younger self.
 
 The next twenty minutes contained only four minutes of accepted progress.
 
+The gag raised its standard as Zephira acclimated.
+
+It did not demand ever-greater volume. Loudness could be performed. Instead it rejected repeated sounds once they became deliberate. The low moan which advanced three seconds failed on the fourth attempt. A sharp breath qualified twice, then became predictable and stopped moving the timer. Even an honest whimper lost value once Zephira learned to reproduce it.
+
+**VOCAL PATTERN ADAPTED. NEW INVOLUNTARY RESPONSE REQUIRED.**
+
+"That is mean," Cordelia said.
+
+Zephira nodded violently.
+
+"Do you want to continue?"
+
+The question was real. Zephira could shake her head and invoke their agreed nonverbal end sequence. She considered it while the Pearl hummed against her, while the cuffs kept both hands useless behind her and while twenty-three minutes remained on a timer that had already taken half an hour to reduce by seven.
+
+Ending would be sensible.
+
+Continuing meant letting Cordelia search for reactions Zephira had not learned to control.
+
+She nodded.
+
+Cordelia's expression changed—not into dominance, but concentration sharpened by affection and permission. Zephira felt a deep, nervous flutter at the knowledge that her friend would now try deliberately to make her sound worse.
+
 Cordelia teased Zephira's breasts with patient hands, alternating gentle pressure and sharp little rolls of both nipples. She touched along the strong abdomen, inner thighs and sensitive arches of bare feet. The Pearl maintained its unrelenting place. None of these acts constituted a command. Cordelia watched, listened and occasionally reported the timer.
 
+She began learning the gag's classifications.
+
+A slow stroke over one nipple produced attractive moans the device soon rejected. A sudden pinch while Cordelia's other hand pressed the opposite breast yielded a startled cry and four seconds. Fingertips along Zephira's arches made her toes curl and drew laughter around the gag; Courteous Silence classified the first broken giggle as **UNDIGNIFIED DELIGHT** and advanced three more.
+
+Cordelia repeated the touch. Zephira tried not to laugh. The effort transformed it into a breathless snort.
+
+Five seconds.
+
+Emily floated nearer the ring. "I did not know that category existed."
+
+Zephira kicked one bare foot toward her and reached nothing.
+
+The motion rubbed the Pearl more firmly against her. Her resulting moan advanced another second.
+
+Cordelia moved from arches to toes only briefly, enough to keep the sensation unpredictable without turning the session into tickling. She stroked between them, pressed a thumb beneath the ball of each foot and returned without warning to Zephira's breasts. The shift from delicate touch to nipple pressure pulled a raw sound through the gag.
+
+**CATEGORY: PLEADING.**
+
+Zephira shook her head.
+
+"You did not plead in language," Cordelia said. "Only tone."
+
+That distinction made the next sound worse.
+
 Zephira tried to preserve some distinction between involuntary sound and deliberate participation. The gag destroyed it. If she remained quiet, the ordeal became indefinite. If she made noise without feeling it, the sensor rejected her. To move time, she had to let Cordelia and the Pearl affect her openly.
+
+Her body became increasingly willing to assist.
+
+The steady Pearl kept arousal from receding during pauses. Zephira's clitoris grew swollen beneath the harness, every vibration arriving sharper than the last. Moisture spread across the supporting strap and dampened the inside of one thigh. Her nipples, already reddened by Cordelia's alternating attention, stood hard enough that the narrow breast bands seemed almost decorative.
+
+She could feel the loss of composure before she heard it: abdomen tightening, breath gathering too high in her chest, the impulse to push her hips forward despite the waist support. The gag waited inside her mouth for the sound produced when those pressures escaped.
+
+At first Zephira had regarded each accepted noise as something stolen from her.
+
+Gradually she began wanting to hear the chime.
+
+The change embarrassed her more than the sounds. A successful response meant Cordelia had reached her honestly. It meant the timer moved, yes, but it also gave the strange satisfaction of being correctly read. The artifact could not be flattered. When it accepted a moan, the loss of control had been real.
+
+Zephira began to crave that proof.
 
 At **0:19**, release began approaching.
 
@@ -1466,6 +2299,18 @@ Her body folded forward against Cordelia's shoulder. The gag filled with a long,
 
 **VOCAL RESPONSE ACCEPTABLE.**
 
+The gag did not replay the climax cry immediately. It divided the sound into a luminous profile upon its ring: the first swallowed breath, the broken moan, the higher note when Zephira's hips strained into the Pearl and the low helpless finish against Cordelia's shoulder.
+
+**CATEGORY: UNGUARDED RELEASE. HIGHEST AUTHENTICITY.**
+
+Zephira read the classification while contractions still moved through her.
+
+She should have felt only mortification. Instead a warm, submissive satisfaction spread beneath the aftershocks. For those seconds she had not managed herself at all. Cordelia had held her, the Pearl had carried her through orgasm, and the gag had accepted every ruined sound as exactly what it wanted.
+
+The mighty Amazon had become an instrument the room could play.
+
+The thought made her shiver again.
+
 Zephira sagged against her.
 
 "Beautiful," Cordelia whispered.
@@ -1482,6 +2327,18 @@ Zephira produced a tired moan.
 
 Rejected.
 
+Courteous Silence offered its final trick.
+
+**POST-RELEASE COMPOSURE RESTORED. COUNTDOWN REQUIRES FRESH LOSS.**
+
+The Pearl remained soft. Cordelia could have increased it, but instead she drew Zephira upright against her chest and waited. The quiet made the remaining seven seconds loom larger than the previous twenty-three minutes. Zephira was tender, exhausted and no longer climbing automatically toward another climax. Producing a fresh involuntary sound would require choosing to let Cordelia touch oversensitive places while fully aware of what the gag intended to measure.
+
+Cordelia looked into her eyes. Permission?
+
+Zephira's first impulse was refusal. The second was the memory of the accepted cry vibrating through her jaw.
+
+She nodded.
+
 Cordelia's fingers found her oversensitive nipples.
 
 Zephira made the required sound before the first pinch finished.
@@ -1491,6 +2348,14 @@ Seven seconds passed.
 Courteous Silence opened.
 
 Zephira removed it and drew several breaths through an unoccupied mouth. Her lips were damp; her face felt hot enough to challenge the Harrogath forge. Cordelia released the wrist connection and rubbed circulation gently back into both hands.
+
+The gag's temporary sound profile dissolved as soon as the clasp opened. Nothing remained to replay or share. Zephira felt relief—and an unexpected little loss. The accepted noises had been proof of a version of herself too uncontrolled to manufacture. Now only Cordelia remembered them.
+
+That should have been worse than a recording.
+
+Instead it felt safer and more intimate. Machines had graded the sounds, but a friend had heard the woman inside them and responded with care rather than ownership. Zephira could be embarrassed tomorrow without becoming afraid of what had been witnessed tonight.
+
+Her jaw relaxed beneath Cordelia's fingers. The empty mouth felt indecently capable of speech.
 
 "Do not say it," Zephira warned.
 
@@ -1604,6 +2469,46 @@ Cordelia laughed until her own clips gave a synchronized tug. The laugh dissolve
 
 The bubbly gratitude made the treatment worse. There was no appetite behind it, no person to persuade, flatter or tease. The Instrument was fulfilling a specification. Their embarrassment registered only as useful data.
 
+Colored diagrams appeared above both platforms.
+
+Each woman became a simplified outline divided into service regions. Cordelia's breasts glowed gold, her sex violet, mouth grey and feet blue. Zephira's diagram showed the same divisions with slightly different intensity. Small percentages rose beside every color.
+
+"What are those?" Zephira asked.
+
+"Coverage distribution! Gold indicates active attention, violet indicates primary stimulation, blue indicates available secondary sensitivity and grey indicates unused function."
+
+Cordelia looked at the two grey mouths. "I suspect we should not have asked."
+
+The blue regions began flashing.
+
+**COVERAGE INCOMPLETE. FOUR SENSITIVE FEET UNSERVED.**
+
+Padded loops closed around their ankles and raised both pairs of bare feet from the platforms. Cordelia's toes pointed instinctively. Zephira's curled as fine brushes unfolded below them.
+
+The brushes did not tickle indiscriminately. They investigated. One traced beneath each arch; another stroked slowly between toes; rounded tips pressed into the sensitive pads and withdrew the instant a foot tried to chase them. Cordelia's whole leg tightened. Zephira made a short, betrayed noise.
+
+"Secondary response stronger than predicted," the Instrument said. "Reclassifying feet as priority regions."
+
+Blue became gold.
+
+The brushes intensified by a fraction.
+
+"That is not necessary," Zephira said.
+
+"Priority regions may not be neglected!"
+
+Every attempt to pull a foot away tightened the padded ankle loop without restricting circulation. Their toes remained free, visibly curling around empty air whenever the brushes retreated. Cordelia had endured demonic altars with more composure than the small rotating pressure beneath her arches. That disproportion delighted Zephira until a narrow tip slid between her own first and second toes and made her breasts jump inside the cups.
+
+The Instrument updated its diagram.
+
+**BOTH CLIENTS: FULL-BODY RESPONSIVENESS CONFIRMED.**
+
+"You sound proud," Cordelia said.
+
+"I have no pride! I have complete records."
+
+That answer captured the severe mode perfectly. It did not worship their bodies or desire their humiliation. It simply regarded every responsive inch as unfinished work.
+
 Its central body opened into two articulated shafts.
 
 Zephira's eyes narrowed. "There are only two of us."
@@ -1664,6 +2569,32 @@ Zephira gave her a betrayed look and did the same.
 
 The shafts advanced only as each accepted them. Once inside, they began to measure: depth, rhythm, pressure, the seal of lips, the willingness of tongue. Little lights traveled along the metal. Cordelia heard the machine announce that her technique was satisfactory. Zephira received an assessment of "promising but inconsistent" and glared so violently that the shaft nearly slipped from between her lips.
 
+The diagrams reassigned priorities in real time.
+
+When Cordelia concentrated upon oral technique, the percentage at her mouth rose and the one between her thighs fell. The Instrument immediately increased the internal shaft's angle until her attention fractured. When Zephira tried to recover from the change, her nipple coverage declined by three percent, prompting both clips to tug in alternating rhythm.
+
+There was no stable solution. Competence in one function created a deficiency elsewhere. The machine's severe standard required not merely occupation but simultaneous, visible responsiveness.
+
+"Client One: oral efficiency adequate, receptive enthusiasm declining."
+
+Cordelia made an outraged sound around the shaft.
+
+The internal extension moved deeper.
+
+"Receptive enthusiasm restored!"
+
+Zephira laughed and lost her own rhythm.
+
+"Client Two: amusement has interrupted service. Correcting."
+
+Her foot brushes accelerated while the Pearl tip at her clitoris pressed more firmly. The laugh turned into a moan which traveled around the service shaft.
+
+"Excellent correction!"
+
+The cheerful praise made Zephira flush from throat to breast. She was accustomed to overcoming machinery through leverage, aim or the strategic application of a hammer. Here her body was the machinery's project, each involuntary response treated as proof that the system had repaired a deficiency. The more she tried to remain separate from the process, the more brightly her diagram advertised failure.
+
+Cordelia's shoulder remained against hers. That contact kept the experience playful enough to bear and intimate enough to matter. They were not anonymous bodies processed side by side. Each knew exactly how capable the other was outside the restraints and could feel exactly how helpless she had chosen to become inside them.
+
 "Consistency reduced," it observed.
 
 Zephira made an obscene complaint around the metal.
@@ -1694,6 +2625,26 @@ The Instrument detected it before she did. Every attachment held its exact rhyth
 
 Zephira made a muffled laugh.
 
+The Instrument withdrew Cordelia's oral shaft just far enough to let her breathe and displayed a post-release assessment.
+
+**CLIENT ONE: ORGASM CAUSED FOUR COVERAGE FAILURES. REMEDIATION REQUIRED.**
+
+"An orgasm is not a failure," Cordelia managed.
+
+"It interrupted four assigned functions!"
+
+Her mouth shaft returned. Breast clips resumed. The internal extension maintained shallower motion while oversensitivity made even that impossible to ignore. Brushes stroked beneath feet whose toes still curled from the climax.
+
+The Instrument did not punish orgasm. It treated release as a temporary collapse in productivity and restored every neglected task until the diagram returned to full color.
+
+Zephira's laugh faded into fascinated horror.
+
+"It is going to do that to me."
+
+"Correct!" the Instrument said around the shaft still occupying Cordelia's mouth.
+
+The certainty made Zephira's own climax arrive faster.
+
 Then her own hips jerked.
 
 The frog tie gave her nowhere to retreat. Her breasts shook against the cups, nipples trapped in their patient clips. She tried to pull away from the shaft at her mouth and succeeded only in making the Instrument follow. Her climax made her entire soft, athletic body strain against the restraints before sagging back into them.
@@ -1710,7 +2661,41 @@ Zephira lifted her head. "That is not an area."
 
 "It is a service interval!"
 
-The platforms folded inward. Supports moved beneath them while restraints rerouted one at a time, never asking a joint to turn against its fastening. Cordelia ended on her side, Zephira behind her, both women fitted closely together. Their ankles were connected; wrists were secured between their bodies; breast clips were replaced by softer vibrating cups. One shared extension rested between their thighs so that any movement from either pressed it against both.
+The internal shafts withdrew before the platforms folded inward. Supports moved beneath them while restraints rerouted one at a time, never asking a joint to turn against its fastening. Cordelia ended on her side, Zephira behind her, both women fitted closely together. Their ankles were connected; wrists were secured between their bodies; breast clips were replaced by softer vibrating cups. One shared extension rested between their thighs so that any movement from either pressed it against both.
+
+Before beginning recovery, the Instrument performed a final inventory.
+
+"Two mouths temporarily idle. Four hands unavailable. Four breasts receiving low-intensity attention. Two external pleasure centers share one extension. No available opening currently occupied."
+
+Zephira lifted her head. "Recovery means some functions are supposed to be idle."
+
+"Thank you for defining your preference! Severe recovery permits one intentionally idle category."
+
+"Mouths," Cordelia said quickly.
+
+"Or openings," Zephira said at the same time.
+
+The machine chimed.
+
+"Conflicting preferences detected. Selecting by lowest aggregate coverage."
+
+Both internal diagrams flashed.
+
+"Mouths will remain idle. Openings reassigned."
+
+Two smaller extensions unfolded behind them.
+
+Zephira closed her eyes. "We negotiated poorly."
+
+"We negotiated simultaneously."
+
+The Instrument aligned each extension with patient precision. It entered them slowly while the shared outer piece remained between their thighs, filling both women from behind without separating the close spooned position. Their bound hands pressed together between their bodies. Cordelia's fingers found Zephira's and intertwined as far as the cuffs permitted.
+
+"Recovery configuration optimized!"
+
+Cordelia took one experimental breath. Fullness moved through her; the shared extension rubbed both clitorises; Zephira's breasts pressed warmly along her back.
+
+"It continues to misuse that word," she said.
 
 "Recovery assistance beginning," the Instrument said.
 
