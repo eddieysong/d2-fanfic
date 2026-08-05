@@ -53,6 +53,7 @@ export function LibraryHome({
           <a href="#aftermath">Aftermath</a>
           <a href="#grail">Grail adventures</a>
           <a href="#zephira">Zephira</a>
+          <a href="#cruelty">Black Rose</a>
           <a href="#archives">Archives</a>
           <Link href="/gallery">Gallery</Link>
         </nav>

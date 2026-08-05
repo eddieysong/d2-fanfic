@@ -26,9 +26,11 @@ test("renders the chronological archive index", async () => {
   assert.match(html, /The Fourth Discipline/);
   assert.match(html, /Knots of Her Own/);
   assert.match(html, /href="#zephira">Zephira<\/a>/);
+  assert.match(html, /Strictly Optional Cruelty/);
+  assert.match(html, /href="#cruelty">Black Rose<\/a>/);
   assert.match(html, /The Beneficent Archives/);
   assert.match(html, /View the gallery/);
-  assert.match(html, /<strong>63<\/strong>\s*entries/);
+  assert.match(html, /<strong>71<\/strong>\s*entries/);
   assert.doesNotMatch(html, /codex-preview|SkeletonPreview|Your site is taking shape/);
 });
 
@@ -95,11 +97,30 @@ test("renders Zephira's complete arc after the Grail adventures", async () => {
   const lastGrail = generated.indexOf("grail-13-the-mercenary-experiment");
   const firstZephira = generated.indexOf("zephira-01-the-first-lock");
   const lastZephira = generated.indexOf("zephira-14-the-next-discovery");
+  const firstCruelty = generated.indexOf("cruelty-01-the-whore-has-returned");
   const archives = generated.indexOf("35-the-intended-effects");
   assert.ok(firstZephira > lastGrail);
   assert.ok(lastZephira > firstZephira);
-  assert.ok(archives > lastZephira);
+  assert.ok(firstCruelty > lastZephira);
+  assert.ok(archives > firstCruelty);
   assert.doesNotMatch(generated, /The Unreachable Key/);
+});
+
+test("renders the complete Black Rose arc before the later archives", async () => {
+  const response = await render("/read/cruelty-01-the-whore-has-returned");
+  assert.equal(response.status, 200);
+  const html = await response.text();
+  assert.match(html, /Chapter One: The Whore Has Returned/);
+  assert.match(html, /Strictly Optional Cruelty/);
+  assert.match(html, /BLACK ROSE/);
+
+  const generated = await readFile(new URL("../lib/library.generated.ts", import.meta.url), "utf8");
+  const firstCruelty = generated.indexOf("cruelty-01-the-whore-has-returned");
+  const lastCruelty = generated.indexOf("cruelty-08-the-complete-curriculum");
+  const archives = generated.indexOf("35-the-intended-effects");
+  assert.ok(firstCruelty > -1);
+  assert.ok(lastCruelty > firstCruelty);
+  assert.ok(archives > lastCruelty);
 });
 
 test("keeps multi-image scenes in narrative order", async () => {

@@ -1494,13 +1494,13 @@ Gold letters appeared before her closed eyes.
 
 The Whore-Maker's classroom formed around her.
 
-Black marble, golden channels and the tall instructional mirror replaced the field. Her armor vanished. Cuffs folded her hands behind her back. The Headmistress's pleasant voice welcomed her as though she had returned voluntarily for refresher training, which in a contractual sense she had.
+Black marble, golden channels and the tall instructional mirror replaced the field. Her armor vanished. Cuffs folded her hands behind her back. Gold letters welcomed her as though she had returned voluntarily for refresher training, which in a contractual sense she had.
 
 "Today's session will reinforce useful priorities under performance pressure."
 
 Training constructs emerged from the walls. Cordelia knelt before the first golden phallus and felt the familiar temporary rearrangement begin: service becoming meaningful, praise becoming warm, the satisfaction of giving pleasure moving ahead of ordinary impatience.
 
-The session was complete rather than abbreviated. Her mouth and throat were trained until the mirror approved depth, rhythm and endurance. Articulated hands stimulated breasts and sex whenever she served well, withholding reward when concentration failed. The Headmistress praised improvement in tones absurdly suited to a cheerful finishing school.
+The session was complete rather than abbreviated. Her mouth and throat were trained until the mirror approved depth, rhythm and endurance. Articulated hands stimulated breasts and sex whenever she served well, withholding reward when concentration failed. The machine reported improvement in the neutral tone of equipment logging a successful calibration.
 
 Cordelia climaxed only after the Engine determined that pleasure had become properly associated with submission and service. The release left the trained state intact.
 
@@ -1536,7 +1536,7 @@ Second death.
 
 **ADVANCED REFRESHER AUTHORIZED.**
 
-The Headmistress sounded delighted.
+The machine displayed the authorization without emotion.
 
 This session began with Cordelia restrained upon the black examination table while anonymous extensions assessed retained learning. One trained her mouth; another filled her from behind; articulated hands held her breasts and rewarded obedience through nipples already responsive to remembered praise. The mirror gave corrections in a bubbly, merciless voice.
 
@@ -1594,7 +1594,7 @@ Its polearm entered the open back of Beneficent Attire.
 
 "Oh, come on," Cordelia said as the classroom formed.
 
-The Headmistress commended her enthusiasm.
+The machine recorded her enthusiasm.
 
 By the time the third complete session ended, Cordelia was a walking collection of temporary service instincts wearing the face of a very tired sorceress. She returned to the portal, sat upon the grass and considered leaving the Ber rune beside her corpse forever.
 
@@ -1866,7 +1866,7 @@ Anya was in Harrogath, presiding over a longhouse full of petitions and enchante
 
 "Kashya carries knives to conversations."
 
-Emily summoned the complete jewelry set.
+Cordelia yielded control of one hand. Emily guided it through the familiar invocation, but the complete jewelry set answered Cordelia's will.
 
 Cordelia's furs and armor transformed in a silver rush. Nipple rings formed, bracelets closed, stockings climbed her legs and sensible winter boots became open-toed stilettos wholly unsuited to snow. The clitoral jewel appeared between exposed thighs; last came the choker through which Emily already inhabited her.
 
