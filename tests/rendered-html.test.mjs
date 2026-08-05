@@ -40,7 +40,7 @@ test("renders the complete story and fan-service illustration gallery", async ()
   const html = await response.text();
   assert.match(html, /The visual archive/);
   assert.match(html, /All illustrations/);
-  assert.match(html, /<strong>90<\/strong>/);
+  assert.match(html, /<strong>96<\/strong>/);
   assert.match(html, />The Fourth Discipline<\/button>/);
   assert.match(html, />Knots of Her Own<\/button>/);
   assert.match(html, />Black Rose<\/button>/);
@@ -51,6 +51,7 @@ test("renders the complete story and fan-service illustration gallery", async ()
   assert.match(html, /Fanservice_Morning_Grail_Run\.jpg/);
   assert.match(html, /Intimate_Feet_Closeup_with_Face\.jpg/);
   assert.match(html, /Grail_01_The_Fifth_Branch\.jpg/);
+  assert.match(html, /Zephira_01_The_First_Lock\.jpg/);
   assert.match(html, /Zephira_12_Maximum_Occupancy\.jpg/);
   assert.match(html, /Cruelty_08_The_Complete_Curriculum\.jpg/);
   assert.match(html, /Archives_05_A_Nonzero_Possibility\.jpg/);
@@ -58,7 +59,7 @@ test("renders the complete story and fan-service illustration gallery", async ()
   assert.match(html, /Beneficent_Attire_Stage6_Animated\.mp4/);
   assert.match(html, /Return_To_Harrogath_Animated\.mp4/);
   assert.equal((html.match(/data-animated-scene/g) ?? []).length, 3);
-  assert.equal((html.match(/data-gallery-item/g) ?? []).length, 90);
+  assert.equal((html.match(/data-gallery-item/g) ?? []).length, 96);
 });
 
 test("renders a complete reader route", async () => {

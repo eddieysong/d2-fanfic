@@ -165,6 +165,24 @@ const illustrations = {
   "grail-13-the-mercenary-experiment": [
     art("Grail_13_The_Mercenary_Experiment.jpg", "Cordelia and Emily are caught together by an ancient paired restraint ward", "One mercenary, two matching sets, and a field test neither woman planned.", 0.62),
   ],
+  "zephira-01-the-first-lock": [
+    art("Zephira_01_The_First_Lock.jpg", "Zephira admires her first enchanted hogtie in the Appraising Glass", "The first lock reveals a surprisingly pretty kind of helplessness.", 0.58),
+  ],
+  "zephira-02-strictly-practical-purchases": [
+    art("Zephira_02_Strictly_Practical_Purchases.jpg", "Zephira tests a frog-tie supported against the bed footboard", "A strictly practical purchase receives a thorough private trial.", 0.62),
+  ],
+  "zephira-03-private-experiments": [
+    art("Zephira_03_Private_Experiments.jpg", "Zephira crosses the sleeping Lut Gholein market in enchanted hobble chains", "A private experiment ventures briefly into the sleeping city.", 0.78),
+  ],
+  "zephira-04-found-by-chance": [
+    art("Zephira_04_Found_By_Chance.jpg", "Cordelia and Emily discover Zephira's forward-leaning rope predicament in the Lost City baths", "Found by chance—and examined only after Zephira's careful permission.", 0.46),
+  ],
+  "zephira-05-four-hours-four-weeks": [
+    art("Zephira_05_Four_Hours_Four_Weeks.jpg", "Zephira endures the mistaken four-week setting inside a cliffside shrine", "Four hours and four weeks differ by only one unfortunate selector mark.", 0.52),
+  ],
+  "zephira-06-you-asked-me-to": [
+    art("Zephira_06_You_Asked_Me_To.jpg", "Cordelia offers water during Zephira's quiet aftercare", "After the locks open, Cordelia helps make the world manageable again.", 0.82),
+  ],
   "zephira-07-someone-knows": [
     art("Zephira_07_Someone_Knows_X-frame.jpg", "Zephira tests a demanding X-frame predicament with Cordelia nearby", "For the first time, someone else knows exactly where she has placed herself.", 0.62),
   ],
