@@ -126,6 +126,102 @@ const illustrations = {
   "33-the-mutable-instrument": [art("Mutable_Instrument_Stage6.jpg", "Cordelia tests the cheerful mutable instrument", "The mutable instrument is very eager to help.")],
   "34-the-whore-maker": [art("Whore_Maker_Stage6.jpg", "Cordelia examines the Lost Horadrim's final training device", "The artifact known only as the Whore-Maker.")],
   "35-the-intended-effects": [art("Intended_Effects.jpg", "Seris reads Cain's account of the Beneficent Attire", "A dusty tome and its unexpectedly absorbing scholarship.")],
+  "grail-01-the-fifth-branch": [
+    art("Grail_01_The_Fifth_Branch.jpg", "Cordelia meets Emily Vohl in a forgotten Horadric workshop", "The Lost Horadrim reveals herself—and the jewelry's hidden fifth branch.", 0.52),
+  ],
+  "grail-02-the-fourth-discipline": [
+    art("Grail_02_The_Fourth_Discipline.jpg", "Cordelia practices the jewelry's newly unlocked Arcane discipline", "Arcane power, paid for with a rather different source of energy.", 0.58),
+  ],
+  "grail-03-the-green-sentence": [
+    art("Grail_03_The_Green_Sentence.jpg", "Cordelia completes the Green Sentence with a final set-item drop", "The third green treasure finally falls.", 0.78),
+  ],
+  "grail-04-the-burden-of-charms": [
+    art("Grail_04_The_Burden_of_Charms.jpg", "Cordelia carries the increasingly physical burden of unidentified charms", "Every charm is worth keeping. Probably.", 0.6),
+  ],
+  "grail-05-a-productive-day-off": [
+    art("Grail_05_A_Productive_Day_Off.jpg", "Cordelia balances within a lantern-lit predicament beneath the Lut Gholein docks", "A day off becomes unexpectedly productive.", 0.57),
+  ],
+  "grail-06-the-high-rune-stampede": [
+    art("Grail_06_The_High_Rune_Stampede.jpg", "Cordelia flees a stampede in the Secret Cow Level", "A high-rune challenge with unusually immediate consequences.", 0.52),
+  ],
+  "grail-07-one-day-one-jah": [
+    art("Grail_07_One_Day_One_Jah.jpg", "Emily borrows Cordelia's body for one day in exchange for a Jah rune", "One day, one Jah, and entirely too much confidence.", 0.5),
+  ],
+  "grail-08-the-eight-foot-solution": [
+    art("Grail_08_The_Eight_Foot_Solution.jpg", "Cordelia and her friends confront an eccentric foot-based curse", "The solution requires four volunteers and eight bare feet.", 0.48),
+  ],
+  "grail-09-alkor-s-excellent-judgment": [
+    art("Grail_09_Alkors_Excellent_Judgment.jpg", "Cordelia realizes why Alkor recommended drinking only one potion", "Alkor's recommendation proves characteristically sound.", 0.63),
+  ],
+  "grail-10-the-last-acceptable-moment": [
+    art("Grail_10_The_Last_Acceptable_Moment.jpg", "Cordelia unleashes a Beneficent Cataclysm in a buried Zakarum vault", "Every chamber opened; every guardian gathered; one last acceptable moment.", 0.84),
+  ],
+  "grail-11-the-rose-of-tristram": [
+    art("Grail_11_The_Rose_of_Tristram.jpg", "Cordelia rests in a restored Tristram after releasing the Rose Sentence", "Forty-five days of stored power bloom across Tristram.", 0.88),
+  ],
+  "grail-12-the-replication-requirement": [
+    art("Grail_12_The_Replication_Requirement.jpg", "Cordelia and a physically manifested Emily face the replicated curse together", "The requirement has doubled. The volunteers have not become less enthusiastic.", 0.52),
+  ],
+  "grail-13-the-mercenary-experiment": [
+    art("Grail_13_The_Mercenary_Experiment.jpg", "Cordelia and Emily are caught together by an ancient paired restraint ward", "One mercenary, two matching sets, and a field test neither woman planned.", 0.62),
+  ],
+  "zephira-07-someone-knows": [
+    art("Zephira_07_Someone_Knows_X-frame.jpg", "Zephira tests a demanding X-frame predicament with Cordelia nearby", "For the first time, someone else knows exactly where she has placed herself.", 0.62),
+  ],
+  "zephira-08-one-additional-pair-of-hands": [
+    art("Zephira_08_One_Additional_Pair_Of_Hands.jpg", "Cordelia contributes one additional pair of hands to Zephira's design", "Zephira supplies the framework; Cordelia supplies the complication.", 0.58),
+  ],
+  "zephira-09-special-delivery": [
+    art("Zephira_09_Special_Delivery.jpg", "Zephira travels from Lut Gholein as carefully secured private cargo", "Special delivery to the Rogue Monastery.", 0.55),
+  ],
+  "zephira-10-two-locks": [
+    art("Zephira_10_Two_Locks.jpg", "Cordelia and Zephira prepare a matching two-person restraint experiment", "Two women, two locks, and decisions made while both could still reach the keys.", 0.55),
+  ],
+  "zephira-11-an-impractical-pillow": [
+    art("Zephira_11_An_Impractical_Pillow.jpg", "Cordelia curls around a securely bound Zephira in the monastery bedroom", "An impractical pillow proves unexpectedly comfortable.", 0.58),
+  ],
+  "zephira-12-maximum-occupancy": [
+    art("Zephira_12_Maximum_Occupancy.jpg", "Cordelia and Zephira test the maximum occupancy of a very small cage", "The eastern cell was designed for one. This is treated as a suggestion.", 0.6),
+  ],
+  "cruelty-01-the-whore-has-returned": [
+    art("Cruelty_01_The_Whore_Has_Returned.jpg", "Cordelia returns voluntarily to the awakened severe training apparatus", "The Black Rose reawakens a particularly severe curriculum.", 0.58),
+  ],
+  "cruelty-02-written-all-over-her": [
+    art("Cruelty_02_Written_All_Over_Her.jpg", "The Beneficent jewelry writes its severe assessment across Cordelia", "The jewelry remains silent. Its inscriptions do not.", 0.52),
+  ],
+  "cruelty-03-sufficient-technique": [
+    art("Cruelty_03_Sufficient_Technique.jpg", "The Penitent Coil evaluates Cordelia's attentive service", "Freedom must be earned through sufficient technique.", 0.5),
+  ],
+  "cruelty-04-the-glass-does-not-flatter": [
+    art("Cruelty_04_The_Glass_Does_Not_Flatter.jpg", "Zephira confronts the Appraising Glass and its unhelpfully accurate angles", "The Glass changes nothing. It merely removes the ability to pretend.", 0.55),
+  ],
+  "cruelty-05-one-chance-in-four": [
+    art("Cruelty_05_One_Chance_In_Four.jpg", "Zephira chooses among four covered runes with one bare foot", "One chance in four feels different when the Pearl is already winning.", 0.5),
+  ],
+  "cruelty-06-below-the-threshold": [
+    art("Cruelty_06_Below_The_Threshold.jpg", "Courteous Silence waits for Zephira's composure to break", "The timer will begin after one sufficiently undignified sound.", 0.5),
+  ],
+  "cruelty-07-coverage-incomplete": [
+    art("Cruelty_07_Coverage_Incomplete.jpg", "The Mutable Instrument evaluates Cordelia and Zephira together", "Two clients detected. Coverage remains incomplete.", 0.52),
+  ],
+  "cruelty-08-the-complete-curriculum": [
+    art("Cruelty_08_The_Complete_Curriculum.jpg", "Cordelia and Zephira activate every compatible Black Rose artifact", "The complete curriculum begins.", 0.48),
+  ],
+  "seris-01-voluntary-applications": [
+    art("Archives_01_Voluntary_Applications.jpg", "Seris opens Emily Vohl's first catalogue of recovered instruments", "Volume I: recovered instruments and unusually argumentative footnotes.", 0.2),
+  ],
+  "seris-02-forty-five-days": [
+    art("Archives_02_Forty_Five_Days.jpg", "Seris studies the forty-five-day record of the Rose of Tristram", "Volume II: forty-five days, three Prime Evils, and one technically exact mechanism.", 0.2),
+  ],
+  "seris-03-private-field-equipment": [
+    art("Archives_03_Private_Field_Equipment.jpg", "Seris examines Emily's catalogue of Zephira's private field equipment", "Volume III: private field equipment, accurately diagrammed.", 0.24),
+  ],
+  "seris-04-the-black-rose-addendum": [
+    art("Archives_04_Black_Rose_Addendum.jpg", "Seris opens the silver Black Rose addendum", "Volume IV opens only after the reader admits she wants to continue.", 0.16),
+  ],
+  "seris-a-nonzero-possibility": [
+    art("Archives_05_A_Nonzero_Possibility.jpg", "Seris watches Kashya's authorized crystal simulation", "Possibility is not prediction.", 0.84),
+  ],
 };
 
 function countWords(text) {
