@@ -30,7 +30,7 @@ test("renders the chronological archive index", async () => {
   assert.match(html, /href="#cruelty">Black Rose<\/a>/);
   assert.match(html, /The Beneficent Archives/);
   assert.match(html, /View the gallery/);
-  assert.match(html, /<strong>74<\/strong>\s*entries/);
+  assert.match(html, /<strong>75<\/strong>\s*entries/);
   assert.doesNotMatch(html, /codex-preview|SkeletonPreview|Your site is taking shape/);
 });
 
@@ -141,6 +141,20 @@ test("renders Emily's four-volume catalogue after Cain's monograph", async () =>
   assert.ok(volumeThree > volumeTwo);
   assert.ok(volumeFour > volumeThree);
   assert.doesNotMatch(generated, /Commission and Command/);
+});
+
+test("renders Kashya's authorized crystal record after Emily's catalogue", async () => {
+  const response = await render("/read/seris-a-nonzero-possibility");
+  assert.equal(response.status, 200);
+  const html = await response.text();
+  assert.match(html, /A Nonzero Possibility/);
+  assert.match(html, /SUBJECT AUTHORIZATION: CONFIRMED/);
+  assert.match(html, /SIMULATION OF THE IDENTICAL SCENARIO AVAILABLE FOR THE CURRENT OWNER/);
+
+  const generated = await readFile(new URL("../lib/library.generated.ts", import.meta.url), "utf8");
+  const volumeFour = generated.indexOf("seris-04-the-black-rose-addendum");
+  const crystalRecord = generated.indexOf("seris-a-nonzero-possibility");
+  assert.ok(crystalRecord > volumeFour);
 });
 
 test("keeps multi-image scenes in narrative order", async () => {

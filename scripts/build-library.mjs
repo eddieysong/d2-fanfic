@@ -417,6 +417,12 @@ const standalone = [
     collectionId: "archives",
     eyebrow: "Emily Vohl’s Catalogue · Volume IV",
   },
+  {
+    file: "seris_a_nonzero_possibility.md",
+    slug: "seris-a-nonzero-possibility",
+    collectionId: "archives",
+    eyebrow: "Fifteen years later · The Crystal Record",
+  },
 ];
 
 async function readStandalone(config) {
