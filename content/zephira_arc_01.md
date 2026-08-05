@@ -772,7 +772,7 @@ Silence followed.
 
 "You have a tray."
 
-The servant eventually retreated, muttering about mercenaries. Zephira listened to the footsteps descend and began to laugh. The motion shifted her breasts within the rope and pulled the posture belt tighter across her stomach. Laughter became a helpless little sound which made her feel more exposed despite the empty room.
+The servant eventually retreated, muttering about mercenaries. Zephira listened to the footsteps descend and began to laugh. The motion shifted her breasts within the fixed torso harness, tightened its lowest line across her stomach and drew both crotch-rope knots more firmly against her. Laughter became a helpless little sound which made her feel more exposed despite the empty room.
 
 By the time the hour ended, both knees ached pleasantly and hunger had sharpened every smell entering beneath the door. The artifact released her with exact obedience. Zephira unfolded slowly, stretching one long leg and then the other, and admired the shallow pink impressions left across her breasts, torso and softly rounded thighs before wrapping herself in a robe.
 
@@ -864,7 +864,9 @@ The fifth term occurred in an abandoned signal tower overlooking the sea.
 
 Zephira found the tower during the dye-caravan return. It stood a mile from the road upon a rocky rise, its upper platform open to salt wind and gulls. The signaling brazier had rusted through. One wall remained warm from the setting sun. Nobody used the path below after dark.
 
-She returned alone two nights later carrying rope, water, a blanket and the belt and ankle cuffs from Drognan's cache. Preparation felt different outside her room. Every object had to be considered before she closed the final restraint: lamp positioned where a bound foot could not kick it, water consumed rather than merely left nearby, cloak folded within reach after release. Not safeguards against death—Sanctuary provided its own inelegant answer to that—but courtesies from the woman who made the plan to the woman who would have to inhabit it.
+She returned alone two nights later carrying rope, water, a blanket and the anchor straps and ankle cuffs from Drognan's cache. Preparation felt different outside her room. Every object had to be considered before she closed the final restraint: lamp positioned where a bound foot could not kick it, water consumed rather than merely left nearby, cloak folded within reach after release. Not safeguards against death—Sanctuary provided its own inelegant answer to that—but courtesies from the woman who made the plan to the woman who would have to inhabit it.
+
+The tower supplied the structure. Two old iron rings stood several feet apart in the floor. Three more survived in the warm stone wall: one low at the height of her bound hands and two near shoulder level. Zephira tested all five with her full weight before laying down the blanket.
 
 Zephira-the-planner was becoming very considerate.
 
@@ -876,15 +878,15 @@ The mirror from her room had been too large to bring. Instead she had purchased 
 
 Zephira laid out pale rope in parallel coils.
 
-This term would bind her wrists palm to palm behind her back. Separate lines would encircle her upper arms, cross above and below each breast, descend around her waist and fasten to the posture belt. Her ankles would remain apart against two old iron rings set into the tower floor. Thirty minutes.
+This term would bind her wrists palm to palm behind her back and tether them to the low wall ring. Separate lines would encircle her upper arms and cross above and below each breast; the black anchor straps would connect that torso harness to the two shoulder-height rings. Her ankles would remain apart against the two old iron rings set into the tower floor. Thirty minutes.
 
 She touched the primary clasp and offered the arrangement.
 
 Magic lifted the rope.
 
-It circled her torso first, sliding over warm skin with a softness that made every pass distinct. Lines crossed her back and returned beneath her arms. One settled under the weight of her breasts and tightened upward; another crossed above them, not concealing but framing. Her arms folded behind her. The new leather cuffs accepted the silver fastenings with a satisfying click, palms turning together, fingers pointing toward the small of her back.
+It circled her torso first, sliding over warm skin with a softness that made every pass distinct. Lines crossed her back and returned beneath her arms. One settled under the weight of her breasts and tightened upward; another crossed above them, not concealing but framing. Her arms folded behind her. The new leather cuffs accepted the silver fastenings with a satisfying click, palms turning together, fingers pointing toward the small of her back. A short tether joined them to the low ring in the wall.
 
-The posture belt drew snug.
+The two black anchor straps drew snug from her shoulder lines to the separate rings behind her.
 
 Zephira's shoulders rolled open. Her breasts rose between parallel bands, full and conspicuous, dark nipples hardening before the cool sea air had time to claim responsibility. Rope descended over the slight inward line of her waist and divided toward both thighs. The ankle cuffs moved apart until her feet reached the floor rings, leaving her stance broad and stable but impossible to close.
 
@@ -892,9 +894,9 @@ The final knot pulled everything into relation.
 
 Zephira breathed.
 
-Every breath moved against structure. Rope beneath her breasts took their weight and returned it as a constant upward pressure. The belt kept her from bending enough to hide. Her joined hands rested close to her body, warm palms touching, strong fingers made irrelevant. When she pulled one arm, the effort crossed her back and became tension around the opposite breast. When she tried to step, the ankle lines stopped her after an inch and drew attention down the full length of her legs.
+Every breath moved against structure. Rope beneath her breasts took their weight and returned it as a constant upward pressure. The two straps pulled against fixed masonry whenever she tried to bend forward, while the warm wall itself stopped her moving backward and their separated anchors prevented her toppling sideways. Her joined hands rested close to her body, warm palms touching, strong fingers made irrelevant against the low ring behind them. When she pulled one arm, the effort crossed her back and became tension around the opposite breast. When she tried to step, the ankle lines stopped her after an inch and drew attention down the full length of her legs.
 
-She turned toward the bronze disk as far as the posture belt and ankle tethers permitted.
+She turned toward the bronze disk as far as the anchored shoulder straps and ankle tethers permitted.
 
 It showed one sea-green eye, a flushed cheek and part of the rope harness. By twisting carefully at the waist she could exchange that fragment for one breast, one bound ankle or the silhouette of her joined hands, but never see the whole arrangement at once. The incomplete reflection was frustrating and therefore somehow more intimate: glimpses of a powerful naked woman arranged with meticulous care, offered to no gaze but her own.
 
