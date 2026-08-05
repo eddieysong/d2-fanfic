@@ -30,9 +30,9 @@ The Black Rose settings had emerged during what she called a *particularly sever
 
 Activation required the user to speak a complete phrase voluntarily:
 
-**I'm a slut. Please don't go easy on me.**
+**I'm a slut. I'm begging you to use me like one.**
 
-The bluntness was functional. A vague command might be spoken accidentally. A euphemism might preserve too much distance. The phrase required the user to name the role, request severity and hear her own voice do both before the artifact assumed authority.
+The bluntness was functional. A vague command might be spoken accidentally. A euphemism might preserve too much distance. The phrase required the user to name the role, beg to be treated accordingly and hear her own voice do both before the artifact assumed authority.
 
 Cordelia's first annotation began halfway through the word *functional*.
 
@@ -48,7 +48,7 @@ Cordelia's first annotation began halfway through the word *functional*.
 
 *E.: These statements are compatible.*
 
-Seris mouthed the words without sound. Even alone, they made heat climb her throat. There was something indecent about the first-person grammar. A scholarly description could keep desire at arm's length. The password abolished that distance in nine words.
+Seris mouthed the words without sound. Even alone, they made heat climb her throat. There was something indecent about the first-person grammar—and something worse in turning a request into a plea. A scholarly description could keep desire at arm's length. The password abolished that distance in eleven words.
 
 The book, mercifully, made no comment.
 

@@ -628,13 +628,13 @@ Drognan lifted one ankle cuff. "Compatible, perhaps. Not identical."
 
 "Ancient enchanters did not have to pay you."
 
-The ankle cuffs came as a pair, linked by a chain which could vanish into either clasp. When Zephira touched them, an impression of possible forms passed through her: feet held together, legs spread, one ankle drawn upward, both positioned upon chosen points. The silk belt responded by offering anchor, support and tension. None of the objects imposed a form on its own. They waited for an owner to compose one.
+The ankle cuffs came as a pair, linked by a chain which could vanish into either clasp. When Zephira touched them, an impression of possible forms passed through her: feet held together, legs spread, one ankle drawn upward, both positioned upon chosen points. Beside them lay two black silk anchor straps, each ending in a locking loop meant to join a rope harness to a fixed support. None of the objects imposed a form on its own. They waited for an owner to compose one—and, where posture mattered, to provide something solid for the composition to pull against.
 
 Her excitement was immediate and embarrassingly physical.
 
 "Seventy gold," Drognan said.
 
-"For two cuffs and a belt."
+"For two cuffs and two straps."
 
 "For rare Horadric objects whose purpose you have spent two mornings pretending not to understand."
 
@@ -660,7 +660,7 @@ They settled at fifty-three after Zephira threatened to ask Fara whether ankle c
 
 Drognan opened the scroll.
 
-Most of the ink had faded. A diagram survived: a woman kneeling within a network of lines, wrists crossed against the small of her back and joined to a waist belt, ankles turned outward and torso held upright by a belt which closely resembled the one on the table. The artist had rendered the mechanical relationships carefully. She had also given the subject a notably satisfied expression.
+Most of the ink had faded. A diagram survived: a woman kneeling within a network of lines, wrists crossed against the small of her back and tethered to a low wall ring, ankles folded against her thighs and knees turned outward. Two black straps ran from the harness over her shoulders to separate bolts behind her, holding her torso upright by pulling against the masonry rather than pretending rope could argue with gravity on its own. The artist had rendered the mechanical relationships carefully. She had also given the subject a notably satisfied expression.
 
 At the bottom lay the same unfinished symbol appearing upon Zephira's primary clasp—three looping lines surrounding an empty center.
 
@@ -700,7 +700,7 @@ Zephira stopped.
 
 "Of course. Will you require breakfast sent upstairs?"
 
-Zephira considered the silk belt, the ankle cuffs and the scroll hidden under brown cloth. Her body had been anticipating privacy since Drognan named the price.
+Zephira considered the silk straps, the ankle cuffs and the scroll hidden under brown cloth. Her body had been anticipating privacy since Drognan named the price.
 
 "Lunch," she said.
 
@@ -712,21 +712,25 @@ Upstairs, she locked the door and spread every piece across the bed.
 
 Her first artifact needed five more completed terms before its maker's mark awakened. Zephira could have selected one-minute tests and finished before the food arrived. That felt like cheating. She chose an hour and composed the arrangement from the damaged diagram.
 
-Preparation became part of the pleasure. She bathed away the market's dust, combed out her hair and left it loose. From the parcel she selected the pale nonmagical cord, tested it against her skin and smiled at its softness. She undressed without haste, then stood before the mirror while fastening the black silk belt around her taut waist. It fitted itself closely, settling above strong hips. The ankle cuffs followed. Last came the original silver clasp, cool in her palm.
+Preparation became part of the pleasure. She bathed away the market's dust, combed out her hair and left it loose. From the parcel she selected the pale nonmagical cord, tested it against her skin and smiled at its softness. She undressed without haste, dragged the room's heavy bed six inches backward and tested every joint in its tall footboard with her full weight. It stood directly opposite the mirror: two stout posts joined by an upper crossbar broad enough to brace her harness and a low rail which did not move when she planted both feet and pulled. She spread a folded blanket on the floor immediately in front of it. The ankle cuffs followed. Last came the original silver clasp, cool in her palm.
 
 Zephira selected her form.
 
-Frog-tied. Each ankle secured tightly against its own thigh, knees drawn wide apart. Wrists crossed against the small of her back and fixed to the rear of the waist belt. Torso held upright. One hour.
+Frog-tied. Each ankle secured tightly against its own thigh, knees drawn wide apart. Wrists crossed against the small of her back and tethered to the low footboard rail. Torso harness anchored separately to both bedposts. Crotch rope included. One hour.
 
 Amber light flowed through every piece.
 
-The ankle lines shortened first. Zephira lowered herself carefully as each heel folded toward its own hip. Pale cord enclosed calf and thigh together in matched bands, compressing their warm curves until her ankles rested snugly against the backs of her legs. A final line drew her knees apart. She could sit low or rock forward, but she could neither straighten a leg nor bring the opened thighs together. The frog tie exposed her sex to the mirror without placing anything against it. That absence made the exposure feel sharper.
+The ankle lines shortened first. Zephira lowered herself carefully as each heel folded toward its own hip. Pale cord enclosed calf and thigh together in matched bands, compressing their warm curves until her ankles rested snugly against the backs of her legs. A final line drew her knees apart. She could sit low or rock forward, but she could neither straighten a leg nor bring the opened thighs together. For the moment, the frog tie exposed her sex to the mirror while leaving it untouched. The temporary absence made anticipation sharper.
 
 The pale cord lifted.
 
-It crossed her stomach in two lines, passed beneath both breasts and gathered them into a broad harness. The black belt became an anchor. Each breath moved full sun-bronzed curves against soft rope, skin rising in subtle pillows above and below the flat bands. More line traveled over her shoulders and down her back. Her arms folded low, wrists crossing in the hollow above her hips; silver closed there with a quiet click, and a short final tether joined the cuffs to the belt's rear ring.
+It crossed her stomach in two lines, passed beneath both breasts and gathered them into a broad harness. Each breath moved full sun-bronzed curves against soft rope, skin rising in subtle pillows above and below the flat bands. More line traveled over her shoulders and down her back. The two black silk straps locked onto those shoulder lines, passed around the separate bedposts and drew the back of her harness firmly against the upper crossbar. Her ribs remained free to expand, but her shoulders could no longer leave the rigid support behind them.
 
-The final tension straightened her spine.
+A doubled length descended from the lowest front line and passed between her spread thighs. One knot settled directly against her most sensitive point; a second rested lower, close enough to make every shift of her hips consequential. The rope returned up her back and secured to the rear of the body harness. It did not vibrate or move by itself. It merely ensured that Zephira could not move without stimulating herself.
+
+Her arms folded low, wrists crossing in the hollow above her hips. Silver closed there with a quiet click, and a short tether ran backward to the footboard's low central rail.
+
+The shoulder straps took tension through both bedposts while the footboard's upper crossbar supplied the support rope alone could not. Below it, the wrist tether drew taut against the low rail. With her harness fixed to a rigid structure at three separated points, Zephira's upper body could no longer fold forward, topple backward or sideways, or carry the entire tie across the floor.
 
 Zephira stared at herself.
 
@@ -736,11 +740,11 @@ Loose blonde hair spilled around her shoulders. Her breasts rested inside pale l
 
 Her reflection grinned.
 
-She pulled against her wrists. The short tether to the waist belt stopped them from sliding around either hip, while the torso harness held her upright. When she tried to bring her knees together, the lines joining calf to thigh and knee to opposite knee opposed the movement everywhere at once. She could rock her weight between folded legs but not stand, close herself, bring her hands forward, cover her breasts or reach the heat now gathering plainly between her thighs.
+She pulled against her wrists. The tether to the footboard stopped them from sliding around either hip, while the two independently anchored shoulder straps fixed her upper body upright against the solid crossbar. When she tried to bring her knees together, the lines joining calf to thigh and knee to opposite knee opposed the movement everywhere at once. She could rock her hips a few inches between folded legs but not stand, fold forward, fall aside, close herself, bring her hands forward or cover her breasts. Each attempt to rock rubbed the two crotch-rope knots through the heat gathering plainly between her thighs.
 
-The restraint did not stimulate her. It did not need to.
+The restraint supplied no artificial pulse. It did not need one.
 
-Every line supplied its own quiet sensation: pressure beneath her breasts, silk tight around her waist, the broad embrace of rope where calves pressed into thighs, her own hair brushing sensitized nipples when she moved. The pose itself became a touch which never ended. She had given the artifact a picture and it had made her inhabit it.
+Every line supplied its own quiet sensation: pressure beneath her breasts, the broad embrace of rope where calves pressed into thighs, her own hair brushing sensitized nipples when she moved and the paired knots answering whenever fatigue made her shift. Remaining perfectly still spared her the friction but left her muscles bearing the posture without relief. Rocking eased one discomfort and deliberately fed another. She had given the artifact a picture and it had made her inhabit every choice inside it.
 
 Twenty minutes later, someone knocked.
 
@@ -748,7 +752,7 @@ Zephira froze.
 
 "Lunch," called one of Elzix's servants.
 
-She looked at the door. It stood ten feet away, locked from within. Her crossed hands rested uselessly against the small of her back, tethered to the waist belt. Her knees remained helplessly open toward the mirror.
+She looked at the door. It stood ten feet away, locked from within. Her crossed hands rested uselessly against the small of her back, tethered to the footboard behind her. Separate straps held both shoulders to its posts. Her knees remained helplessly open toward the mirror.
 
 "Leave it outside."
 
@@ -768,7 +772,7 @@ Silence followed.
 
 "You have a tray."
 
-The servant eventually retreated, muttering about mercenaries. Zephira listened to the footsteps descend and began to laugh. The motion shifted her breasts within the rope and pulled the posture belt tighter across her stomach. Laughter became a helpless little sound which made her feel more exposed despite the empty room.
+The servant eventually retreated, muttering about mercenaries. Zephira listened to the footsteps descend and began to laugh. The motion shifted her breasts within the fixed torso harness, tightened its lowest line across her stomach and drew both crotch-rope knots more firmly against her. Laughter became a helpless little sound which made her feel more exposed despite the empty room.
 
 By the time the hour ended, both knees ached pleasantly and hunger had sharpened every smell entering beneath the door. The artifact released her with exact obedience. Zephira unfolded slowly, stretching one long leg and then the other, and admired the shallow pink impressions left across her breasts, torso and softly rounded thighs before wrapping herself in a robe.
 
@@ -860,7 +864,9 @@ The fifth term occurred in an abandoned signal tower overlooking the sea.
 
 Zephira found the tower during the dye-caravan return. It stood a mile from the road upon a rocky rise, its upper platform open to salt wind and gulls. The signaling brazier had rusted through. One wall remained warm from the setting sun. Nobody used the path below after dark.
 
-She returned alone two nights later carrying rope, water, a blanket and the belt and ankle cuffs from Drognan's cache. Preparation felt different outside her room. Every object had to be considered before she closed the final restraint: lamp positioned where a bound foot could not kick it, water consumed rather than merely left nearby, cloak folded within reach after release. Not safeguards against death—Sanctuary provided its own inelegant answer to that—but courtesies from the woman who made the plan to the woman who would have to inhabit it.
+She returned alone two nights later carrying rope, water, a blanket and the anchor straps and ankle cuffs from Drognan's cache. Preparation felt different outside her room. Every object had to be considered before she closed the final restraint: lamp positioned where a bound foot could not kick it, water consumed rather than merely left nearby, cloak folded within reach after release. Not safeguards against death—Sanctuary provided its own inelegant answer to that—but courtesies from the woman who made the plan to the woman who would have to inhabit it.
+
+The tower supplied the structure. Two old iron rings stood several feet apart in the floor. Three more survived in the warm stone wall: one low at the height of her bound hands and two near shoulder level. Zephira tested all five with her full weight before laying down the blanket.
 
 Zephira-the-planner was becoming very considerate.
 
@@ -872,15 +878,15 @@ The mirror from her room had been too large to bring. Instead she had purchased 
 
 Zephira laid out pale rope in parallel coils.
 
-This term would bind her wrists palm to palm behind her back. Separate lines would encircle her upper arms, cross above and below each breast, descend around her waist and fasten to the posture belt. Her ankles would remain apart against two old iron rings set into the tower floor. Thirty minutes.
+This term would bind her wrists palm to palm behind her back and tether them to the low wall ring. Separate lines would encircle her upper arms and cross above and below each breast; the black anchor straps would connect that torso harness to the two shoulder-height rings. Her ankles would remain apart against the two old iron rings set into the tower floor. Thirty minutes.
 
 She touched the primary clasp and offered the arrangement.
 
 Magic lifted the rope.
 
-It circled her torso first, sliding over warm skin with a softness that made every pass distinct. Lines crossed her back and returned beneath her arms. One settled under the weight of her breasts and tightened upward; another crossed above them, not concealing but framing. Her arms folded behind her. The new leather cuffs accepted the silver fastenings with a satisfying click, palms turning together, fingers pointing toward the small of her back.
+It circled her torso first, sliding over warm skin with a softness that made every pass distinct. Lines crossed her back and returned beneath her arms. One settled under the weight of her breasts and tightened upward; another crossed above them, not concealing but framing. Her arms folded behind her. The new leather cuffs accepted the silver fastenings with a satisfying click, palms turning together, fingers pointing toward the small of her back. A short tether joined them to the low ring in the wall.
 
-The posture belt drew snug.
+The two black anchor straps drew snug from her shoulder lines to the separate rings behind her.
 
 Zephira's shoulders rolled open. Her breasts rose between parallel bands, full and conspicuous, dark nipples hardening before the cool sea air had time to claim responsibility. Rope descended over the slight inward line of her waist and divided toward both thighs. The ankle cuffs moved apart until her feet reached the floor rings, leaving her stance broad and stable but impossible to close.
 
@@ -888,9 +894,9 @@ The final knot pulled everything into relation.
 
 Zephira breathed.
 
-Every breath moved against structure. Rope beneath her breasts took their weight and returned it as a constant upward pressure. The belt kept her from bending enough to hide. Her joined hands rested close to her body, warm palms touching, strong fingers made irrelevant. When she pulled one arm, the effort crossed her back and became tension around the opposite breast. When she tried to step, the ankle lines stopped her after an inch and drew attention down the full length of her legs.
+Every breath moved against structure. Rope beneath her breasts took their weight and returned it as a constant upward pressure. The two straps pulled against fixed masonry whenever she tried to bend forward, while the warm wall itself stopped her moving backward and their separated anchors prevented her toppling sideways. Her joined hands rested close to her body, warm palms touching, strong fingers made irrelevant against the low ring behind them. When she pulled one arm, the effort crossed her back and became tension around the opposite breast. When she tried to step, the ankle lines stopped her after an inch and drew attention down the full length of her legs.
 
-She turned toward the bronze disk as far as the posture belt and ankle tethers permitted.
+She turned toward the bronze disk as far as the anchored shoulder straps and ankle tethers permitted.
 
 It showed one sea-green eye, a flushed cheek and part of the rope harness. By twisting carefully at the waist she could exchange that fragment for one breast, one bound ankle or the silhouette of her joined hands, but never see the whole arrangement at once. The incomplete reflection was frustrating and therefore somehow more intimate: glimpses of a powerful naked woman arranged with meticulous care, offered to no gaze but her own.
 
@@ -906,7 +912,7 @@ The air reached her between spread thighs. Her sex remained untouched and visibl
 
 When it released, she caught the collapsing harness in both hands and stood for a while beneath the darkening sky, reluctant to dress.
 
-The sixth term was less elegant.
+The sixth term was less elegant and considerably more ambitious.
 
 It began after a long afternoon in the Far Oasis, where Zephira and Rasha had hunted a pack of leapers preying upon water carriers. One of the creatures stole Rasha's headcloth. Another spent most of the fight attempting to eat it. The resulting chase ended with three dead leapers, a ruined cloth and Rasha refusing to discuss the accuracy of Zephira's throws.
 
@@ -932,27 +938,207 @@ Rasha drank. "I regret asking."
 
 The story traveled no farther. Lut Gholein contained enough strange private habits that discretion often resembled boredom. People noticed Zephira's purchases, her occasional disappearances and the pale marks which one morning showed above the collar of her tunic. They also noticed a merchant importing boots meant for hooves and a palace musician receiving twelve identical bouquets from women who signed only with initials. Zephira remained interesting without becoming news.
 
-After supper she returned to her room slightly drunk and overconfident.
+After supper she returned to her room drunk enough to consider confidence a substitute for clothing.
 
-She selected a compact form intended for sleep: wrists behind, knees bent, ankles drawn toward her thighs, rope supporting her torso upon one side. Six hours.
+The market had finally gone quiet beneath her window. By day, the route between Atma's tavern and the desert gate belonged to shouting spice sellers, camels with personal grievances, children running messages and guards pretending the palace district was not listening to every argument. Now moonlight lay across shuttered stalls. A few watch lamps burned at the intersections. The dark made the familiar route look private.
 
-The artifact interpreted *supporting* with artistic conviction.
+It was not private.
 
-It bound her into a curled position upon the bed, one thigh lifted, the other extended and wrists secured behind her. A broad harness supported her ribs and hips. Then two short stabilizing lines clipped themselves to opposite sides of the wooden bedframe—one running forward from the chest harness, the other backward from the hip band—and tightened until her whole body could roll neither forward nor back. Her upper breast rested heavily over the lower, gathered between two cords. One foot remained near her bound hands, toes close enough to brush with her fingertips and impossible to grasp.
+Zephira could see a porter asleep beneath a striped awning with one sandal over his face. Somewhere beyond the fountain, metal struck stone at the measured pace of a night patrol. A late tavern door opened near the docks, released laughter and closed again. Lut Gholein had not emptied. It had merely reduced its population to exactly the people she least wanted to explain herself to.
 
-"This is not a sleeping position," Zephira informed the clasp.
+That made the idea better.
 
-**THE TERM IS NOT FULFILLED.**
+She placed the Horadric clasp upon the table and spoke carefully because the wine had begun making details feel optional.
 
-"That was criticism, not a release request."
+"A round trip," she said. "From this room to the desert gate. Bare foot against the inner threshold stone, then back across this doorway. Restraints remain locked until the complete route is finished."
 
-No answer appeared.
+Amber writing appeared above the clasp.
 
-The first hour was delightful. The second remained interesting. During the third, Zephira learned that a position designed by wine became considerably less inspired after wine produced a full bladder. She endured with diminishing nobility until the term ended at dawn, then limped to the chamber pot swearing never to design another arrangement after the second cup.
+**ROUTE CONDITION RECOGNIZED. DEFINE RESTRAINT.**
 
-By breakfast she had amended the rule to the third cup.
+Zephira undressed.
 
-Elzix set coffee before her and observed the stiffness with which she sat.
+Armor would have been impossible to explain. Clothing would have made the expedition merely foolish. She removed everything, folded it with drunken precision and stood naked before the open window while cool air touched the marks left by the tower ropes.
+
+"Wrists behind," she said. "Hobble chain. Chest harness. Crotch rope. No gag."
+
+The clasp offered a final image: Zephira with her wrists crossed at the small of her back and fixed into a rope harness which left her breasts entirely bare; ankles joined by enough chain for short, careful steps; a doubled rope passing between her thighs with two knots placed where walking would make them impossible to ignore.
+
+**ROUTE RELEASE ONLY. ORDINARY COMPLAINT WILL NOT ALTER THE CONDITION.**
+
+Zephira looked from the image to the sleeping city.
+
+"Accepted."
+
+She prepared the doors before surrendering her hands. The room door remained open the width of her boot, which she wedged beneath it. Downstairs, the service entrance into the alley used a simple lift latch she could operate with bound fingers if she approached backward. She checked it once, returned upstairs and nearly laughed at the sight of her own naked reflection making logistical preparations for an expedition of fewer than a thousand paces.
+
+Magic lifted the rope.
+
+The chest harness formed first. Pale lines crossed beneath and above her breasts, gathered over her shoulders and settled firmly around her ribs without pretending to support a posture she would have to maintain herself. A lower crossing provided the front and rear anchors for the crotch rope. The doubled strand descended. One knot settled against her clitoris; the other rested at the entrance below it. Neither moved while she stood still.
+
+Zephira already understood the problem.
+
+Walking required movement.
+
+Her arms folded behind her. Leather cuffs closed around both wrists, crossed them low and tethered them to the rear of the chest harness so they could not slide around either hip. Last came the ankle cuffs. A short silver chain joined them, long enough for a restrained stride and short enough that forgetting it would put her on the stones.
+
+The clasp dimmed.
+
+Her room waited around her: robe three feet away, weapons against the wall, blanket upon the bed, every sensible option available only to a woman whose hands had not just been locked behind her.
+
+"Field logistics," Zephira whispered.
+
+She backed through the propped door.
+
+The first staircase nearly ended the experiment.
+
+Ordinarily Zephira descended it three steps at a time. With her ankles connected, she had to turn sideways, set one bare foot upon each worn tread and bring the other down beside it. Her shoulder brushed the wall for balance. Every lowering step drew the crotch rope forward, rolled its upper knot across her and made the harness tighten beneath her breasts. By the bottom, her nipples had hardened and the cool common room felt much too open.
+
+Two men remained asleep at a corner table.
+
+Zephira froze behind the stair post.
+
+One had folded both arms beneath his head. The other leaned against the wall with his mouth open, an overturned cup resting harmlessly near one hand. They had been present when she went upstairs. Wine had made them scenery. Nudity made them a military problem.
+
+The service passage lay beyond them.
+
+Zephira waited until the nearer sleeper exhaled into a snore, then crossed the common room in four shortened strides. The ankle chain whispered over the rush matting. Her bare breasts moved inside the framing ropes. She could neither steady them nor cover herself; both hands remained displayed uselessly at her back. When the second man shifted, Zephira flattened against a support pillar and discovered that stone against one nipple was cold enough to make her gasp.
+
+Neither sleeper woke.
+
+At the service door she turned around, found the latch with her bound fingers and lifted it on the third attempt. Night air entered. So did the distant voice of a watchman.
+
+Zephira slipped into the alley and lowered the latch behind her.
+
+The market began twenty paces away.
+
+Moonlight silvered the white walls and divided the stalls into alternating strips of visibility and shadow. Zephira moved within the latter, bare feet silent where the stones were smooth and painfully aware of every grain of sand where they were not. Her shortened steps kept the ankle chain from striking loudly. They also made the crotch-rope knots work with patient regularity.
+
+By the first row of spice stalls, embarrassment and stimulation had become inseparable.
+
+Every open patch of street made her body feel brighter. Every hiding place pressed rope differently against her. When she hurried between two awnings, her breasts bounced within the chest harness and the upper knot rubbed hard enough to steal one breath. When she stopped, arousal remained warm and wet around the lower rope while the fear of discovery sharpened every sound.
+
+A night watch appeared beside the fountain.
+
+Two guards walked beneath one lantern, speaking quietly about a dice debt. Their route would carry them directly past Zephira's stall.
+
+She looked for cover.
+
+A stack of empty baskets stood to her left. Too low. A dye merchant's table offered a narrow curtain of hanging cloth, but reaching it meant crossing six feet of moonlight. Behind her, a sleeping porter occupied the only deep shadow and showed signs of losing his sandal.
+
+The guards' lantern grew brighter.
+
+Zephira crossed.
+
+The hobble chain permitted no running. She took three rapid, shortened steps and slipped sideways behind the dyed cloth just as the patrol entered the row. Blue and red lengths hung around her naked body without touching it. The nearest would have covered her easily if either hand had been free.
+
+They were not.
+
+She stood exposed between ribbons of fabric, wrists bound behind her, ankles held close by one short chain and the crotch rope glistening where no respectable market customer would ever expect to see it. Lantern light passed across the outer cloth. One guard stopped.
+
+Zephira's heart struck against the ropes beneath her breasts.
+
+"Did you hear that?" he asked.
+
+The other guard listened.
+
+The movement of Zephira's breathing made one hanging strip sway.
+
+"Awning rope," the second guard decided. "Wind off the harbor."
+
+They continued.
+
+Zephira remained still until their light vanished around the corner. Only then did she discover she had been pressing her thighs together as far as the chain allowed, holding the crotch rope firmly between them. Releasing it produced a slow drag across both knots that left her forehead against the stall post.
+
+"Excellent plan," she whispered.
+
+The desert gate stood at the end of a broad avenue with almost no cover.
+
+Its great doors were closed. A smaller watch entrance remained lit beside them, and a single guard occupied the chair beneath the lamp. He was awake. Zephira could see the silhouette of his spear and one boot stretched into the street.
+
+The inner threshold stone lay twenty feet from him.
+
+She crouched behind a water cart, knees opened awkwardly while the hobble chain kept her ankles close, and waited. The posture brought the crotch rope tight. She shifted to escape it, found her bound hands trapped between back and cart, and shifted forward again. The guard yawned. Somewhere above the gate, another watchman called the hour.
+
+The seated guard stood, took his spear and walked toward the stair leading to the wall.
+
+Zephira moved.
+
+She crossed the avenue with her shoulders back and her restrained stride brutally apparent in the open. There was no shadow deep enough to hide her. Cool air moved over her breasts, stomach and the wet line between her thighs. Halfway across, the upper watchman turned at the parapet.
+
+Zephira reached the gate's inner recess and pressed herself against the stone beside the great door.
+
+The parapet lantern swept over the avenue she had just crossed.
+
+It did not enter the recess.
+
+She looked down at the threshold.
+
+The artifact required her bare foot.
+
+Zephira lifted one leg. With her wrists behind her and the other ankle still connected, balancing became a short, naked crisis. She braced one shoulder against the gate, pointed her toes and placed the ball of her foot upon the worn threshold stone.
+
+Amber light flashed once around the ankle cuff.
+
+**OUTWARD CONDITION FULFILLED. RETURN REQUIRED.**
+
+The guard's boots sounded upon the stair.
+
+Zephira lowered her foot and began the return journey.
+
+The market felt less empty now that she knew exactly where people were sleeping.
+
+The patrol had reversed direction. The porter had rolled onto his back. A lamp had appeared in a second-story window overlooking the fountain, and a woman's silhouette moved behind its shutters. Zephira used the arcade instead, pressing along a row of cool columns while her bare feet collected dust and the chain threatened to announce every hurried step.
+
+At the dye stall, one end of the hanging cloth had fallen into the street.
+
+She passed it without attempting to cover herself. The impossible nearness of concealment made her more aware of nudity than the open avenue had. A single piece of fabric could have changed the entire ordeal; her bound hands made it scenery.
+
+By the spice row, the stimulation had become difficult to ignore. The repeated drag of the knots, the adrenaline still beating beneath her skin and the knowledge that she had crossed the gate avenue naked combined into a rising pressure low in her body. Zephira shortened her stride to reduce the rope's movement. The hobble chain forced the opposite result, making every cautious step roll her hips more deliberately.
+
+She bit her lower lip and continued.
+
+The service alley waited beyond the last market arch.
+
+So did Elzix.
+
+He stood at its far end wearing a robe and carrying an empty bottle, apparently disposing of it before sleep. Zephira stopped behind a rain barrel before he turned.
+
+The barrel concealed her from shoulders to knees if she crouched. It did nothing for the blonde hair spilling around one side or the bare toes visible beneath it. She folded herself as tightly as the ankle chain allowed. The posture forced her breasts against her thighs and drove the crotch-rope knots upward with sudden precision.
+
+Zephira closed her eyes.
+
+Elzix placed the bottle into a crate.
+
+Glass clicked against glass.
+
+The pressure between her thighs climbed with merciless speed. Her body had decided that near discovery, cramped concealment and rope were all arguments in favor of pleasure. Zephira could not move away without showing herself. She could not reach the rope. She could only remain crouched while every involuntary tightening pressed more firmly against it.
+
+Elzix paused.
+
+"Cats," he muttered.
+
+He went inside.
+
+Zephira waited until the latch settled. Then she stood on shaking legs and backed toward the service door.
+
+Her fingers found the simple lift latch more quickly this time. She slipped inside, crossed the common room behind the two sleeping men and confronted the staircase.
+
+Climbing proved worse than descending. Each step required her to raise both joined ankles, place one foot, then bring the other beside it. The rope pulled with every ascent. By the landing she was breathing through her mouth, breasts trembling inside their harness and release hovering close enough to make the final stretch of corridor feel longer than the entire market.
+
+Her boot still held the room door open.
+
+Zephira crossed the threshold.
+
+Amber light swept over every restraint.
+
+The ankle chain vanished first. Her wrists opened. The chest harness and crotch rope fell together around her feet.
+
+Zephira caught the door, pulled it shut and leaned against it naked, flushed and breathing hard. The sudden absence of rope denied her body the friction it had expected. She stood in the dark with freedom restored everywhere at once and wanted, absurdly, to put half of it back.
+
+She began to laugh.
+
+At breakfast, Elzix set coffee before her and observed the dust beneath her fingernails, the stiffness with which she descended the final stair and a faint length of pale rope she had failed to collect from the landing.
 
 "Training injury?"
 
@@ -960,7 +1146,17 @@ Elzix set coffee before her and observed the stiffness with which she sat.
 
 "Successful?"
 
-Zephira drank half the coffee. "Educational."
+Zephira drank half the coffee.
+
+"No witnesses."
+
+Elzix considered that answer.
+
+"I did not ask whether there were witnesses."
+
+Zephira drank the rest of the coffee and decided never to establish release conditions after the third cup.
+
+By noon she had amended the rule to the fourth.
 
 The seventh term awakened the maker's mark.
 

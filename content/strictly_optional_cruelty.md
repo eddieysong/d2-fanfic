@@ -62,7 +62,7 @@ Emily considered the ceiling.
 
 Zephira felt suspicion gather before the ghost answered.
 
-"I'm a slut," Emily recited. "Please don't go easy on me."
+"I'm a slut," Emily recited. "I'm begging you to use me like one."
 
 The buried chamber received the sentence in perfect silence.
 
@@ -178,7 +178,7 @@ The words changed the room more efficiently than any spell.
 
 Cordelia's color rose beneath warm bronze skin. Her amber-brown eyes remained upon the display.
 
-"Please don't go easy on me."
+"I'm begging you to use me like one."
 
 Black glass opened.
 
@@ -485,7 +485,7 @@ Cordelia touched the Black Rose.
 
 The complete set recognized the severe option.
 
-"I'm a slut," Cordelia said, looking directly at Zephira. "Please don't go easy on me."
+"I'm a slut," Cordelia said, looking directly at Zephira. "I'm begging you to use me like one."
 
 Zephira's crossed foot stopped moving.
 
@@ -681,7 +681,7 @@ For several seconds Cordelia hovered in the impossible interval, body attempting
 
 "That was cruel," Zephira said quietly.
 
-Cordelia opened her eyes. "I asked it not to go easy."
+Cordelia opened her eyes. "I begged it to use me like one."
 
 Hearing herself say that made **VOLUNTEERED WHORE** flash once.
 
@@ -767,7 +767,7 @@ Silver entered the last inscription.
 
 Cordelia's voice failed, recovered and became utterly convincing.
 
-"And I don't want you to go easy on me."
+"And I'm begging you to use me like one."
 
 Every tattoo flared.
 
@@ -893,7 +893,7 @@ Charsi stared at the last sentence. "It can do that without the Rose?"
 
 Cordelia touched the Black Rose.
 
-"I'm a slut. Please don't go easy on me."
+"I'm a slut. I'm begging you to use me like one."
 
 The phrase still colored her face. Familiarity had made it easier to pronounce and more embarrassing to mean.
 
@@ -945,7 +945,7 @@ Charsi's blush deepened. "I think it wants us to begin."
 
 "Excellent deduction."
 
-Atma set down her wine. "You did ask it not to go easy."
+Atma set down her wine. "You did beg it to use you like one."
 
 The first required technique appeared above the clasp as a simple diagram: recipient seated, subject kneeling, hands unavailable. Charsi removed her apron, boots and the simple clothes beneath them with the shy practicality of someone undressing for a bath while three women watched too politely.
 
@@ -1223,7 +1223,7 @@ She had heard Cordelia say it twice. The second time had been worse because the 
 
 The Glass remained blank around her image.
 
-"Please don't go easy on me."
+"I'm begging you to use me like one."
 
 Silver restraints closed.
 
@@ -1625,7 +1625,7 @@ Zephira looked toward the Black Rose within reach of her unbound hand. She could
 
 She touched the seal.
 
-"I'm a slut. Please don't go easy on me."
+"I'm a slut. I'm begging you to use me like one."
 
 Cordelia lowered her book.
 
@@ -1641,7 +1641,7 @@ The Pearl tested her before offering odds.
 
 Its vibration wandered through patterns too subtle to predict: a broad hum which warmed without urgency, a narrow pulse that made her clitoris twitch beneath the harness, a sequence timed to the involuntary tightening of her abdomen. Whenever Zephira began anticipating a rhythm, it shifted by half a beat. Her body could learn nothing useful except responsiveness.
 
-The restraint plate amplified that lesson. Flexing her calves drew the ankle lines taut. Lifting her head tightened the support beneath her breasts. Moving her hips caused the waist belt to return her to the exact center of the Pearl. The apparatus did not punish escape. It converted every attempted adjustment into a reminder that escape had not been included.
+The restraint plate amplified that lesson. Flexing her calves drew the ankle lines taut. Lifting her head tightened the support beneath her breasts. Moving her hips brought the padded hip cradle, rigidly mounted to the plate beneath her, into resistance and returned her to the exact center of the Pearl. The apparatus did not punish escape. It converted every attempted adjustment into a reminder that escape had not been included.
 
 Cordelia turned one page without reading it.
 
@@ -1713,7 +1713,7 @@ This time Zephira chose black.
 
 The ankle cuffs moved.
 
-Metal tracks drew her feet farther apart and lower. Her knees opened until the raised position became an unmistakable display. The waist belt tilted her hips upward. The Pearl remained pressed to her while the arrangement settled, denying even the illusion that she was reclining for comfort.
+Metal tracks drew her feet farther apart and lower. Her knees opened until the raised position became an unmistakable display. The plate rotated its padded hip cradle and tilted her pelvis upward. The Pearl remained pressed to her while the arrangement settled, denying even the illusion that she was reclining for comfort.
 
 **POSITION ESCALATED.**
 
@@ -1735,7 +1735,7 @@ Blue activated.
 
 The Pearl surged.
 
-Zephira cried out and arched against the waist belt. The response lasted only five seconds, long enough to bring release into absolute certainty, then stopped before the final threshold. Her bound hands closed around empty air beside her head.
+Zephira cried out and arched against the rigid hip cradle. The response lasted only five seconds, long enough to bring release into absolute certainty, then stopped before the final threshold. Her bound hands closed around empty air beside her head.
 
 Cordelia set the book aside entirely.
 
@@ -1749,7 +1749,7 @@ A second wager receipt formed upon Zephira's left thigh.
 
 Zephira's body remained suspended just below release while she argued about bookkeeping. The absurdity intensified the humiliation. She had entered a mathematically explicit trap, made every choice herself and now wore the running total around spread thighs while Cordelia watched.
 
-The Pearl resumed at its stronger setting before she recovered. Pleasure returned too quickly. Zephira's body remembered the interrupted edge and climbed toward it with humiliating eagerness, hips pressing upward into a belt designed to stop them.
+The Pearl resumed at its stronger setting before she recovered. Pleasure returned too quickly. Zephira's body remembered the interrupted edge and climbed toward it with humiliating eagerness, hips pressing upward into a cradle bolted to the plate and designed to stop them.
 
 She could feel moisture spreading beneath the lower harness. She could see Cordelia's attention move there and back to her face with deliberate courtesy. Being observed in desperation made the next gamble feel more necessary: a chance to regain control through immediate release, to prove she had not merely made herself helpless for the pleasure of worsening it.
 
@@ -2409,7 +2409,7 @@ Zephira looked at Cordelia. "Your turn first."
 
 Cordelia unfastened her robe and let it slide to the floor. The Instrument had already seen every inch of her, but nudity felt different once a machine was waiting to assess it. She stepped onto the circular rug before the table, lifted her chin and spoke with the weary precision of someone reciting a password she had come to resent for being so effective.
 
-"I'm a slut. Please don't go easy on me."
+"I'm a slut. I'm begging you to use me like one."
 
 **CLIENT ONE ENROLLED.**
 
@@ -2419,7 +2419,7 @@ Cordelia glanced back. "There is still time to preserve your excellent judgment.
 
 That decided it. Zephira stripped off the linen wrap, placed it deliberately beside Cordelia's robe and joined her on the rug. Naked, she looked less like the broad-shouldered Amazon of tavern stories and more like the woman those stories had overlooked: tall and athletic, yes, but softly curved over breast, hip and thigh, her strength yielding just enough beneath a rope or a hand to make restraint visible. She regarded the silver baton as if challenging it to disappoint her.
 
-"I'm a slut," she said. The next words came after a pause. "Please don't go easy on me."
+"I'm a slut," she said. The next words came after a pause. "I'm begging you to use me like one."
 
 **CLIENT TWO ENROLLED. SHARED SERVICE CONFIGURATION BEGINNING.**
 
@@ -2799,7 +2799,7 @@ Emily looked offended. "I was never careless."
 
 "Accurately, and only upon request."
 
-Cordelia stepped onto the first kneeling place. Her heels made the posture awkward until the floor rose to support her shins. "I'm a slut. Please don't go easy on me."
+Cordelia stepped onto the first kneeling place. Her heels made the posture awkward until the floor rose to support her shins. "I'm a slut. I'm begging you to use me like one."
 
 Restraints closed loosely around her ankles.
 
@@ -2809,7 +2809,7 @@ Zephira stared at the second place. The phrase had not improved through repetiti
 
 She lowered herself beside Cordelia.
 
-"I'm a slut," she said, then gave the machinery a cold look. "Please don't go easy on me."
+"I'm a slut," she said, then gave the machinery a cold look. "I'm begging you to use me like one."
 
 **WHORE TWO ENROLLED.**
 
@@ -3171,7 +3171,7 @@ The system required the password again.
 
 They spoke together.
 
-"I'm a slut. Please don't go easy on me."
+"I'm a slut. I'm begging you to use me like one."
 
 **ADVANCED STANDARD ACCEPTED.**
 
