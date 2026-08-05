@@ -30,7 +30,7 @@ test("renders the chronological archive index", async () => {
   assert.match(html, /href="#cruelty">Black Rose<\/a>/);
   assert.match(html, /The Beneficent Archives/);
   assert.match(html, /View the gallery/);
-  assert.match(html, /<strong>71<\/strong>\s*entries/);
+  assert.match(html, /<strong>74<\/strong>\s*entries/);
   assert.doesNotMatch(html, /codex-preview|SkeletonPreview|Your site is taking shape/);
 });
 
@@ -123,6 +123,26 @@ test("renders the complete Black Rose arc before the later archives", async () =
   assert.ok(archives > lastCruelty);
 });
 
+test("renders Emily's four-volume catalogue after Cain's monograph", async () => {
+  const response = await render("/read/seris-01-voluntary-applications");
+  assert.equal(response.status, 200);
+  const html = await response.text();
+  assert.match(html, /Volume I — Voluntary Applications/);
+  assert.match(html, /Emily Vohl/);
+
+  const generated = await readFile(new URL("../lib/library.generated.ts", import.meta.url), "utf8");
+  const cain = generated.indexOf("35-the-intended-effects");
+  const volumeOne = generated.indexOf("seris-01-voluntary-applications");
+  const volumeTwo = generated.indexOf("seris-02-forty-five-days");
+  const volumeThree = generated.indexOf("seris-03-private-field-equipment");
+  const volumeFour = generated.indexOf("seris-04-the-black-rose-addendum");
+  assert.ok(volumeOne > cain);
+  assert.ok(volumeTwo > volumeOne);
+  assert.ok(volumeThree > volumeTwo);
+  assert.ok(volumeFour > volumeThree);
+  assert.doesNotMatch(generated, /Commission and Command/);
+});
+
 test("keeps multi-image scenes in narrative order", async () => {
   const response = await render("/read/28-the-holy-grail");
   assert.equal(response.status, 200);
@@ -138,7 +158,7 @@ test("keeps multi-image scenes in narrative order", async () => {
 test("publishes only the selected source stories", async () => {
   const generated = await readFile(new URL("../lib/library.generated.ts", import.meta.url), "utf8");
   assert.match(generated, /The Whore-Maker/);
-  assert.match(generated, /Commission and Command/);
+  assert.doesNotMatch(generated, /Commission and Command/);
   assert.doesNotMatch(generated, /Cordelia — Act I/);
   assert.doesNotMatch(generated, /Chapter One: Den of Evil/);
 });

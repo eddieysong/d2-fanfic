@@ -188,6 +188,18 @@
 - In the finale, Cordelia and Zephira voluntarily return to the Whore-Maker and activate all seven systems. The machinery coordinates them in sequential phases so gags retract for oral service, limbs are released and rerouted before posture changes, and no body part occupies contradictory positions. The subjects are designated **WHORE ONE** and **WHORE TWO**.
 - The finale offers **CONCLUDE CURRICULUM** or **REPEAT AT ADVANCED STANDARD**. Both women deliberately choose advanced, repeat the password, complete the intensified curriculum and receive all stored Rose releases together. The arc ends in friendly aftercare and curiosity about other dormant settings, not permanent conditioning, ownership or hierarchy.
 
+## Later Archives: Seris and Emily's Catalogue
+
+- Fifteen years after Baal's defeat, the quiet Horadric researcher Seris Vale first discovers Deckard Cain's scholarly monograph on the Beneficent Attire. *The Intended Effects* remains Cain's book and the first Seris archive story.
+- Emily Vohl authors the four books Seris reads afterward. They are a companion reaction collection, not another retelling of the original adventures. Emily writes with technical precision, creator-only insight and irreverent asides; Cordelia and Zephira dispute her conclusions in preserved marginal notes and footnotes.
+- Emily corrects the falsified “Edran Vohl” identity in every volume. Cain may be referenced historically, but he does not observe, catalogue or narrate the later recreational artifact sessions.
+- **Volume I — Voluntary Applications** covers the first post-Baal artifacts: the Rose Sentence, Penitent Coil, Mutable Instrument and Whore-Maker. It explains intended use, design logic and selected results without replacing their original chapters.
+- **Volume II — Forty-Five Days** is Emily's observation journal for Cordelia's Uber Tristram preparation. It preserves the Rose's correct mechanism: complete physical orgasms have their pleasure muted and stored, the body resets while desire remains, and all accumulated pleasure returns with the final Cataclysm. The forty-day term is deliberately extended by five days near the end.
+- **Volume III — Private Field Equipment** covers Zephira's Vohl restraint family, the Appraising Glass, Resonant Pearl, Courteous Silence and magical vibrator. A clearly separated non-Vohl appendix discusses the calling charm Cordelia supplied after discovering Zephira; it has no Black Rose setting and is never attributed to Emily. The volume emphasizes solo authorship, local privacy and Zephira's gradual decision to share selected experiences.
+- **Volume IV — The Black Rose Addendum** examines the dormant severe settings, their opt-in phrase and the interaction among all seven systems. Its conclusion treats humiliation as a deliberately chosen grammar of play rather than a hidden identity or permanent corruption.
+- The catalogue preserves privacy. There is no Cordelia first-person diary and no involuntary reader monitoring. Emily records only observations she personally made or details Cordelia and Zephira permitted her to preserve. Seris may react privately and intensely while reading, but the books do not compel her or manufacture consent.
+- The fitted case contains an empty fifth space with a reconstruction slate. Seris takes its stylus home, leaving open a future path toward invention without yet beginning a new adventure or merely repeating Cordelia's experiences.
+
 ## Quest Map
 
 1. Den of Evil — arrival, character and camp rapport; ordinary victory.
