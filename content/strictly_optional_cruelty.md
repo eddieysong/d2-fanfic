@@ -1641,7 +1641,7 @@ The Pearl tested her before offering odds.
 
 Its vibration wandered through patterns too subtle to predict: a broad hum which warmed without urgency, a narrow pulse that made her clitoris twitch beneath the harness, a sequence timed to the involuntary tightening of her abdomen. Whenever Zephira began anticipating a rhythm, it shifted by half a beat. Her body could learn nothing useful except responsiveness.
 
-The restraint plate amplified that lesson. Flexing her calves drew the ankle lines taut. Lifting her head tightened the support beneath her breasts. Moving her hips caused the waist belt to return her to the exact center of the Pearl. The apparatus did not punish escape. It converted every attempted adjustment into a reminder that escape had not been included.
+The restraint plate amplified that lesson. Flexing her calves drew the ankle lines taut. Lifting her head tightened the support beneath her breasts. Moving her hips brought the padded hip cradle, rigidly mounted to the plate beneath her, into resistance and returned her to the exact center of the Pearl. The apparatus did not punish escape. It converted every attempted adjustment into a reminder that escape had not been included.
 
 Cordelia turned one page without reading it.
 
@@ -1713,7 +1713,7 @@ This time Zephira chose black.
 
 The ankle cuffs moved.
 
-Metal tracks drew her feet farther apart and lower. Her knees opened until the raised position became an unmistakable display. The waist belt tilted her hips upward. The Pearl remained pressed to her while the arrangement settled, denying even the illusion that she was reclining for comfort.
+Metal tracks drew her feet farther apart and lower. Her knees opened until the raised position became an unmistakable display. The plate rotated its padded hip cradle and tilted her pelvis upward. The Pearl remained pressed to her while the arrangement settled, denying even the illusion that she was reclining for comfort.
 
 **POSITION ESCALATED.**
 
@@ -1735,7 +1735,7 @@ Blue activated.
 
 The Pearl surged.
 
-Zephira cried out and arched against the waist belt. The response lasted only five seconds, long enough to bring release into absolute certainty, then stopped before the final threshold. Her bound hands closed around empty air beside her head.
+Zephira cried out and arched against the rigid hip cradle. The response lasted only five seconds, long enough to bring release into absolute certainty, then stopped before the final threshold. Her bound hands closed around empty air beside her head.
 
 Cordelia set the book aside entirely.
 
@@ -1749,7 +1749,7 @@ A second wager receipt formed upon Zephira's left thigh.
 
 Zephira's body remained suspended just below release while she argued about bookkeeping. The absurdity intensified the humiliation. She had entered a mathematically explicit trap, made every choice herself and now wore the running total around spread thighs while Cordelia watched.
 
-The Pearl resumed at its stronger setting before she recovered. Pleasure returned too quickly. Zephira's body remembered the interrupted edge and climbed toward it with humiliating eagerness, hips pressing upward into a belt designed to stop them.
+The Pearl resumed at its stronger setting before she recovered. Pleasure returned too quickly. Zephira's body remembered the interrupted edge and climbed toward it with humiliating eagerness, hips pressing upward into a cradle bolted to the plate and designed to stop them.
 
 She could feel moisture spreading beneath the lower harness. She could see Cordelia's attention move there and back to her face with deliberate courtesy. Being observed in desperation made the next gamble feel more necessary: a chance to regain control through immediate release, to prove she had not merely made herself helpless for the pleasure of worsening it.
 
