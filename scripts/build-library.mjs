@@ -499,7 +499,7 @@ async function splitLongCurriculum() {
           .replace(/^-|-$/g, "")}`,
         title: chapterMatch[1],
         shortTitle,
-        eyebrow: `The Long Curriculum · ${String(chapterNumber).padStart(2, "0")} of 07`,
+        eyebrow: `The Long Curriculum · ${String(chapterNumber).padStart(2, "0")} of 08`,
         collectionId: "curriculum",
         sourceFile,
         lines: [],
