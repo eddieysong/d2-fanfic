@@ -28,9 +28,11 @@ test("renders the chronological archive index", async () => {
   assert.match(html, /href="#zephira">Zephira<\/a>/);
   assert.match(html, /Strictly Optional Cruelty/);
   assert.match(html, /href="#cruelty">Black Rose<\/a>/);
+  assert.match(html, /The Long Curriculum/);
+  assert.match(html, /href="#curriculum">Long Curriculum<\/a>/);
   assert.match(html, /The Beneficent Archives/);
   assert.match(html, /View the gallery/);
-  assert.match(html, /<strong>75<\/strong>\s*entries/);
+  assert.match(html, /<strong>82<\/strong>\s*entries/);
   assert.doesNotMatch(html, /codex-preview|SkeletonPreview|Your site is taking shape/);
 });
 
@@ -125,10 +127,37 @@ test("renders the complete Black Rose arc before the later archives", async () =
   const generated = await readFile(new URL("../lib/library.generated.ts", import.meta.url), "utf8");
   const firstCruelty = generated.indexOf("cruelty-01-the-whore-has-returned");
   const lastCruelty = generated.indexOf("cruelty-08-the-complete-curriculum");
+  const curriculum = generated.indexOf("curriculum-01-enrollment-and-the-eligible-list");
   const archives = generated.indexOf("35-the-intended-effects");
   assert.ok(firstCruelty > -1);
   assert.ok(lastCruelty > firstCruelty);
-  assert.ok(archives > lastCruelty);
+  assert.ok(curriculum > lastCruelty);
+  assert.ok(archives > curriculum);
+});
+
+test("renders the Long Curriculum after the Black Rose arc", async () => {
+  const response = await render("/read/curriculum-01-enrollment-and-the-eligible-list");
+  assert.equal(response.status, 200);
+  const html = await response.text();
+  assert.match(html, /Chapter One: Enrollment and the Eligible List/);
+  assert.match(html, /The Long Curriculum/);
+  assert.match(html, /ELEVEN THOUSAND|11,315|Eleven thousand/i);
+
+  const generated = await readFile(new URL("../lib/library.generated.ts", import.meta.url), "utf8");
+  const lastCruelty = generated.indexOf("cruelty-08-the-complete-curriculum");
+  const firstCurriculum = generated.indexOf("curriculum-01-enrollment-and-the-eligible-list");
+  const lastCurriculum = generated.indexOf("curriculum-07-everything-below-the-ankles");
+  const archives = generated.indexOf("35-the-intended-effects");
+  assert.ok(firstCurriculum > lastCruelty);
+  assert.ok(lastCurriculum > firstCurriculum);
+  assert.ok(archives > lastCurriculum);
+
+  const finalResponse = await render("/read/curriculum-07-everything-below-the-ankles");
+  assert.equal(finalResponse.status, 200);
+  const finalHtml = await finalResponse.text();
+  assert.match(finalHtml, /Chapter Seven: Everything Below the Ankles/);
+  assert.match(finalHtml, /MUTED ORGASMS VERIFIED: 14/);
+  assert.match(finalHtml, /ASSOCIATION THREE/);
 });
 
 test("renders Emily's four-volume catalogue after Cain's monograph", async () => {
