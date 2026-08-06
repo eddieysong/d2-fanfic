@@ -2761,3 +2761,231 @@ Zephira offered her toes again.
 Cordelia accepted them without waiting for the task machine to ask.
 
 Behind them, the fourth pale petal continued to glow.
+
+## Chapter Eight: No Assignment Pending
+
+Cordelia stayed in the bath until the water cooled.
+
+The oils Charsi and Atma had used upon her feet still made its surface glassy in the lamplight. Almond remained the strongest scent, with cardamom beneath it, although both had weakened after she washed her hair. She sat with her back against the stone, one knee raised and the other leg extended beneath the water, watching the small distortions she made whenever she moved.
+
+Her feet had become ordinary again.
+
+She lifted one from the water and rested her heel upon the rim. Nothing extraordinary followed. No transferred pleasure passed through the arch. No chain drew attention to the movement of her toes. A drop ran from her ankle along the inner curve of her foot, disappeared briefly beneath it and gathered again near the ball before falling.
+
+The polish Charsi had applied remained intact. In the bath's softer light, the wine-red nails looked almost black until Cordelia turned her foot and caught the flame upon them. The toes were slender and evenly shaped, though the second was fractionally longer than the first, something Charsi had remarked upon while pretending to discuss lacquer. They flexed when Cordelia stretched her leg and then rested naturally, the smallest toe leaning slightly toward its neighbor.
+
+Her sole had paled in the water. Fine lines crossed the ball and deepened when she curled her toes. The heel was narrow and smooth except along the outer edge, where walking eventually roughened it no matter what oils Charsi recommended. From heel to ankle the foot narrowed sharply, then continued into the clean line of her calf.
+
+Cordelia lowered it into the bath and lifted the other.
+
+The left arch was a little higher. She had known that before Anya measured it, although she could not have said how. Boots wore differently. Bare feet found different balances upon uneven ground. The body collected such knowledge without making a subject of it.
+
+This afternoon, four women and Emily's machine had made a subject of it.
+
+Fourteen stolen orgasms, according to the machine.
+
+Cordelia rested her head against the stone and closed her eyes. The number still embarrassed her. Not because it was inaccurate. Inaccuracy would have been easier.
+
+By the time she rose, the bathwater had stopped steaming.
+
+Water followed the length of her as she stepped out. It gathered briefly behind her knees, ran along her shins and dropped from both heels onto the folded towel. She wrapped her hair first, then dried her shoulders, breasts, waist and legs. The Rose appeared darker against skin flushed from the bath. Three petals held their permanent color below her navel.
+
+She avoided touching them while she dried herself. There was no need to be ceremonious about it.
+
+Her legs looked different when wet. The lamplight sharpened the outside line from hip to ankle while leaving the inner line softer, interrupted by the gentle fullness of her thighs and the small hollows beside her knees. Old travel marks appeared more clearly: the pale scrape near one kneecap, a tiny crescent upon her shin from a Fallen blade which had once seemed important, and a faint line above her right ankle where the Beneficent footwear had closed too tightly during an early experiment.
+
+She dried between her toes, drew the towel along each sole and stepped onto the floor.
+
+The first footprint was complete. Her heel left a small oval, the outer edge of the foot a narrow bridge and the ball a broad impression beneath five separate marks. The high arch left the center empty.
+
+Her second step was already fainter. The heel remained clear, but only four toes appeared.
+
+Cordelia crossed the room and left the prints behind without thinking further about them.
+
+She pulled a nightdress over her head. It was plain linen, soft from use, loose across her waist and short enough that her legs remained bare below mid-thigh. Her damp hair darkened the fabric between her shoulders. She sat at the foot of the bed, drew the towel through its length and then summoned the rune escrow.
+
+Sixty-three runes rotated behind translucent glass.
+
+Cordelia knew every one. She knew which should remain untouched, which could become the foundation of a future runeword and which, despite technically being a high rune, had arrived with the quiet disappointment of an object too valuable to discard and too inconvenient to use. She had already organized them twice, though the vault ignored physical arrangement and returned everything to numerical order.
+
+Eleven thousand three hundred and fifteen was a ridiculous number.
+
+It was also a real number.
+
+She imagined what could be built with it and felt the old acquisitive pleasure which had carried her through thousands of dead monsters and empty chests. She had spent entire weeks pursuing objects with less practical value than the runes already sealed in the vault. Wealth did not become an excuse merely because it was excessive.
+
+Her gaze lowered from the projection to the three dark petals upon her abdomen.
+
+The vault would have held the same sixty-three runes if she had accepted every release.
+
+Cordelia dismissed it.
+
+The room seemed smaller without the projected light. A brazier warmed one corner, and beside the bed a lamp illuminated the book she had abandoned the night before. She picked it up, found her ribbon and settled against the pillows.
+
+The book concerned the western mage clans. Its author had devoted thirty pages to an argument about whether lightning retained an elemental memory after passing through living tissue. Cordelia had once considered the question important.
+
+She read two pages.
+
+Then she read one of them again.
+
+Her attention returned to the afternoon without requiring permission.
+
+Charsi had held her heel in both hands with the same care she used when fitting a weapon grip. Atma had discovered that slow pressure was worse than teasing and had continued discussing skin salves while Cordelia came beneath her thumbs. Anya had compared the responses of two toes as if she were adjusting spell components. Zephira had pressed her own sole against Cordelia's and understood, several orgasms too late, what the transfer coefficient meant.
+
+They had all been kind.
+
+That had not made them less effective.
+
+Cordelia shifted against the pillows. The sheet slid along the back of one calf, cool enough to make her aware of the leg without producing anything stronger than awareness. Her arousal had been with her since the afternoon. It was quieter now, no longer concentrated in her feet and no longer driven by anyone's touch, but it remained as a low warmth beneath the linen and a persistent sensitivity wherever the nightdress rested against her.
+
+She returned to the book.
+
+The author had reached no conclusion about lightning.
+
+Cordelia let the book close upon one finger.
+
+She remembered Kashya.
+
+It had been during the curse from the ancient container, when each woman had been required to bring Cordelia to orgasm using only her feet. Kashya had approached the arrangement as she approached every unpleasant necessity: after reading the terms twice, checking the exits and warning Emily that unnecessary commentary would result in violence.
+
+Her stockings had been new.
+
+Cordelia remembered the clean black fabric, the straight seams and the small adjustment Kashya made when one seam turned slightly behind her ankle. She had corrected it while Atma spoke, as if her fingers had moved without instruction and the detail meant nothing.
+
+The stockings had smelled faintly of lilac when Kashya's foot came close to Cordelia's face. Cordelia recognized Atma's soap. She had stayed above the tavern often enough to know it.
+
+Kashya had washed carefully before the encounter and brought new stockings.
+
+Cordelia had appreciated the preparation.
+
+She had also wondered later what it would have felt like if Kashya had prepared less carefully.
+
+The thought returned now with the same embarrassing clarity. Kashya coming directly from an afternoon on the training field; strong feet warm after hours enclosed in leather boots; a faint trace of honest perspiration beneath the stockings, noticeable only when retreat and graceful comment were equally impossible.
+
+Cordelia imagined trying not to react.
+
+That was the part she liked.
+
+Not the scent by itself. It was the knowledge that Kashya would see her notice it, would watch embarrassment arrive and would understand from the warmth in Cordelia's face that embarrassment had not made the experience less exciting.
+
+The book remained open upon Cordelia's lap.
+
+She could lie convincingly with words. Her body was less disciplined. The blessing had established that early, and the curriculum had made an art of proving it. A nipple hardening beneath a careless remark, thighs pressing together after one filthy word, toes curling around someone's fingers—none of these responses permitted the dignity of a revised explanation.
+
+Cordelia liked the fantasy of being caught that way.
+
+She liked pretending she had no choice after choosing every important part of it. She liked a lock she could not open, a command she had already agreed to obey and an outcome she could blame upon rules accepted while she was still perfectly composed. Once the fantasy began, she no longer had to keep deciding whether she was allowed to want it.
+
+She could relax.
+
+Cordelia placed the book aside.
+
+She thought about all the times when losing was not an option.
+
+At the clan, she had been the apprentice who learned too quickly. The instructors stopped demonstrating and began asking her to demonstrate. Other students watched when she cast. Some watched with admiration, some with resentment, and most with both.
+
+She remembered an examination hall with blue tile beneath her boots. A line of targets had stood at the far end. Her first spell destroyed three when she had been instructed to strike one. The examiner looked at the damage, looked at Cordelia and quietly added two harder exercises to the test.
+
+She completed those too.
+
+There had always been another exercise.
+
+Later there were quests. People waited behind her while monsters stood ahead. Failure ceased to mean embarrassment before an instructor and began to mean blood, ruined towns and gates left open to Hell.
+
+She had liked winning. She still did.
+
+She liked the clean moment when a difficult spell worked, the silence after a monster fell and the weight of an object rare enough to justify the hours spent finding it. She liked being good at what she did.
+
+The fantasy was different.
+
+No one died when Cordelia lost inside it. Sanctuary did not require rescue. She could be bound, defeated, humiliated and left helpless without having failed anyone who depended upon her. The woman who surrendered there was not secretly weaker than the sorceress everyone knew. She was the same woman enjoying a few hours in which strength was unnecessary.
+
+Cordelia drew the blanket over her legs.
+
+The linen settled across her thighs, followed the rise of one bent knee and descended toward her feet. Her left leg remained straight beneath it. She slid that foot forward until her toes found a place still cool from the night air.
+
+Her body had not stopped wanting release.
+
+When she lay still, she could feel the want more distinctly: not pain and not the frantic urgency the Rose sometimes produced during a task, but the quiet readiness of a body which had been reminded too often and satisfied too rarely. The sensation made the bed feel warmer. It made every small adjustment of the sheet noticeable.
+
+Cordelia kept her hands above the blanket.
+
+She had lived with that wanting twice before.
+
+During the first Rose Sentence, she had spoken mostly about the runes. Ending the term early would have cost one she preferred to save, and there were perfectly good reasons not to destroy months of patient farming for relief from a predicament she had entered voluntarily. She repeated those reasons whenever the sentence made her judgment appear less economical.
+
+The physical orgasms had come normally. Her body tightened, contracted and settled afterward. The Rose took only the pleasure, leaving her with the memory of what should have occurred and the knowledge that she could try again without reaching anything different.
+
+At first that had felt like deprivation.
+
+Then it became part of the day.
+
+She remembered eating breakfast while still aware of the previous night's attempt. She remembered walking through Lut Gholein with arousal moving quietly beneath ordinary clothing. She could speak to merchants, examine equipment and listen to Atma without losing track of herself. Yet desire waited behind everything, no longer an interruption and not quite a secret, because the women who knew about the sentence could sometimes recognize it in her face.
+
+Near the end, Cordelia had asked Charsi to keep the runes where she could not reach them.
+
+Later she asked Kashya to lock her in the cleaned jail and refuse to release her before the agreed time.
+
+The cell door closing remained clearer in memory than the argument which preceded it. Kashya took the key. Cordelia sat behind the bars knowing she had arranged matters so that an impulsive change of heart would no longer be convenient.
+
+Nothing had been required of her there.
+
+She had been allowed to remain defeated.
+
+Uber Tristram had lasted forty-five days.
+
+That sentence had never become quiet. Charsi, Kashya, Atma and Anya had worked around Cordelia's endurance while Emily measured the reserve, bringing her through physical climax after physical climax while the Rose took each one. During the first week Cordelia could still laugh easily after a session. She drank water, discussed strategy and treated her body's frustration as an amusing cost of killing three Prime Evils.
+
+The intervals narrowed as the weeks passed.
+
+Her body began remembering before anyone touched her. A familiar voice, the approach of stockinged feet or the sight of an implement being prepared could make her wet while she still possessed enough composure to object. Later, objections became less articulate. The women did not need to become crueler. Cordelia had simply become easier.
+
+She remembered how humiliating that was.
+
+She remembered how much the humiliation aroused her.
+
+By the final days she could no longer pretend she begged only because the Cataclysm required power. She begged because she wanted an orgasm and because everyone present knew she wanted it. The Rose took each physical climax without satisfying her, leaving the evidence of her response and none of the relief that might have helped her recover her dignity.
+
+She had become desperate, delicate and embarrassingly receptive.
+
+She had loved the fantasy of it.
+
+Cordelia's toes curled beneath the sheet.
+
+This curriculum had barely begun.
+
+Three petals had changed. Seventeen remained pale. The machine had shown her the fourth association, but whatever waited beyond it remained hidden until she earned the right to choose again.
+
+Cordelia imagined herself farther into the term. She imagined the machine learning which tasks stayed in her thoughts afterward and which humiliations made her hesitate before accepting. She imagined entering an assignment composed and leaving it exhausted, trembling and visibly unable to conceal what had pleased her.
+
+She did not imagine becoming foolish. The fantasy was hotter if she understood everything.
+
+She would know that the restraints had closed because she requested them. She would know that the words affecting her were words she had deliberately given power. She would know that the machine could not cross a hard limit or prevent her from withdrawing.
+
+Within those facts, she could pretend none of the remaining decisions belonged to her.
+
+She could become the defeated Cordelia for a while: not ruined, not secretly lesser, only relieved of the requirement to remain impressive. She could be arranged into something delicate and pretty, made increasingly responsive until wit became difficult and every attempt at composure revealed how much composure she had lost.
+
+The thought warmed her more deeply.
+
+She imagined being called a whore and feeling the first petal answer. Another word would awaken the second. A consenting woman's toes in her mouth would awaken the third. If she surrendered the next release, carefully controlled pain at her nipples would acquire pleasure because Cordelia herself had chosen that consequence while clearheaded.
+
+The responses would gather. She imagined the private thrill of recognizing how easily she could be undone, the embarrassment of knowing someone else recognized it too and the relief of having no need to disguise either fact until the fantasy ended.
+
+The next release window would give her a choice.
+
+Cordelia imagined accepting it. The Rose would open, and some safe measure of everything stored within it would finally remain with her. The wanting inside her responded so plainly that she pressed her feet into the mattress and waited for it to settle.
+
+Then she imagined forfeiting it.
+
+The fourth petal would darken. The curriculum would continue, and the woman entering its next assignment would be slightly easier to undo than the woman who had entered the last.
+
+That possibility pleased her too.
+
+Cordelia turned onto her side. Her knees bent slightly, and one bare foot emerged from beneath the blanket before she drew it back into the warmth. The toes relaxed against the sheet. Wine-colored nails showed briefly in the remaining lamplight and disappeared when she lowered the edge of the blanket.
+
+Next time, she might take the release.
+
+She did not decide.
+
+Eventually the book slipped farther down the mattress and the coals settled. She was still considering both choices when her breathing slowed into sleep.
