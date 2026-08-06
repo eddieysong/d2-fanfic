@@ -211,6 +211,10 @@
 - **Registered Service Hours** uses collars whose acts remain restricted to prior authorization while their increasingly filthy advertising language is selected entirely by the machine. Supporting characters retain their own voices: Charsi remains warm and curious, Atma calm, Kashya supervisory and restrained, and Anya technical.
 - In **Everything Below the Ankles**, the machine temporarily transfers all Cordelia's erotic sensitivity into her feet. She is safely supported with wrists behind the frame, gagged and displayed with rose-gold anklets, instep chains, toe rings and polished nails. Charsi, Atma, Anya and Zephira knowingly accept an erotic foot-care assignment but are not told the extraordinary transfer coefficient. Massage, toe manipulation, firm arch pressure and limited tickling produce fourteen muted physical orgasms while the prose closely tracks each toe curling, arch flexing and sole responding. Cordelia then voluntarily forfeits her third earned release and unlocks the toe-in-mouth association.
 
+### Long Curriculum Idea Bank — Uncommitted
+
+- **Unscheduled Strategic Consequences / The Hero Who Wasn't Needed:** after an extreme duration of Rose storage, Cordelia finally accepts a genuine release. Its Cataclysm crosses dimensional boundaries and accidentally erases Diablo's reforming essence in the Black Abyss before the events of *Diablo III*. The foreground remains domestic and absurd—reinforced furniture, boarded windows, displaced crockery and Emily revising **UNBOUNDED** to **THIS WAS A MISTAKE**—while brief cosmic cutaways show Adria's plan becoming impossible and a future Nephalem remaining a civilian. Cordelia need not learn what she prevented. This is a banked possibility, not established canon or a promised ending.
+
 ## Later Archives: Seris and Emily's Catalogue
 
 - Fifteen years after Baal's defeat, the quiet Horadric researcher Seris Vale first discovers Deckard Cain's scholarly monograph on the Beneficent Attire. *The Intended Effects* remains Cain's book and the first Seris archive story.
