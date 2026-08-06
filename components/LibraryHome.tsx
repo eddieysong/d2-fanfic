@@ -54,6 +54,7 @@ export function LibraryHome({
           <a href="#grail">Grail adventures</a>
           <a href="#zephira">Zephira</a>
           <a href="#cruelty">Black Rose</a>
+          <a href="#curriculum">Long Curriculum</a>
           <a href="#archives">Archives</a>
           <Link href="/gallery">Gallery</Link>
         </nav>
