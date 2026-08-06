@@ -252,6 +252,102 @@ No restraint closed. No implement emerged. They remained armed, dressed and enti
 
 Neither did.
 
+The first practical consequence of enrollment was supper.
+
+Atma had anticipated that no one would be sensible enough to eat beforehand and turned the tea tray into the beginning of a meal. Charsi fetched bread, cheese and a pot of stew from the monastery kitchen. Kashya opened the workshop windows because Emily's crystallization assembly smelled faintly of lightning. Anya took possession of one end of the table and began rewriting three clauses in the machine's safety appendix despite being informed that the contract had already been signed.
+
+Cordelia sat among them with a bowl warming both hands and discovered that embarrassment had a peculiar half-life. It had been manageable while the platform blazed and the words were a technical requirement. It became less manageable when Charsi asked her to pass the salt in exactly the same warm voice she had used the previous week, as if she had not just heard Cordelia volunteer to spend five years becoming, by some measurable standard, a better whore.
+
+Charsi accepted the salt, glanced up and immediately glanced down again.
+
+That was worse.
+
+Across the table, Zephira was attacking a heel of bread with unnecessary force. The upper edge of her new Rose showed whenever her shirt shifted. She caught Cordelia noticing and pulled the linen down.
+
+"Don't."
+
+"I was admiring the workmanship."
+
+"Admire your own."
+
+"I have."
+
+Atma concealed a smile in her cup. Kashya did not bother.
+
+For ten quiet minutes they managed to discuss ordinary things. A section of the monastery roof needed slate before winter. One of Kashya's scouts had found goat tracks near the eastern wall and declared them evidence of a demonic incursion, which became less persuasive when the alleged demon ate Charsi's glove. Anya needed three chipped sapphires for an experiment and refused to explain why whole ones were unsuitable. Cordelia listened, contributed and felt the reassuring gravity of the world continuing around an indecent choice.
+
+She had feared, without admitting it even to herself, that enrollment might divide her life into the part before the sentence and one long erotic ordeal afterward. Instead there was stew. There was a draft through the repaired windows. There was Charsi complaining about goat saliva and Zephira stealing the last piece of bread while denying she had done so.
+
+The Rose beneath Cordelia's robe remained cool.
+
+Then Gheed entered.
+
+He had not been invited. Gheed regarded an unguarded door, a gathering of armed women and a large illuminated number as three separate invitations.
+
+"Eleven thousand three hundred and fifteen," he read from the projection above Cordelia's vault. "My dear friends, I see you have encountered a sum of money in urgent need of experienced management."
+
+Zephira stopped chewing.
+
+"How much did you hear?" Kashya asked.
+
+"Only the financially relevant portion. Five years, escalating yield, sealed escrow. I offer a modest custodial service at twelve percent."
+
+"The vault is already custodial," Anya said.
+
+"Then six percent for independent oversight."
+
+"It is transparent glass," Cordelia said.
+
+"Three percent for emotional support during market fluctuations."
+
+Emily floated down until her face appeared beside his. "The currency is crystallized from stolen orgasms."
+
+Gheed's salesman smile remained intact for almost an entire second.
+
+He looked at the two Roses, at the platforms, at the restraint cabinets and finally at Kashya, whose expression suggested that the monastery had recently rediscovered capital punishment.
+
+"I see," he said. "Specialized asset class. Fifteen percent."
+
+Kashya escorted him to the door by the shoulder.
+
+"My offer remains open," he called while being turned toward the corridor. "Discretion is included above ten."
+
+The door shut behind him.
+
+Zephira lowered her forehead to the table. Charsi made one strangled sound and then laughed so hard she had to put down her spoon. Even Anya lost her place in the safety appendix.
+
+The laughter released something in Cordelia which the Rose had not taken. She joined it until the enrollment phrase stopped echoing like a confession and became, at least partly, another ridiculous decision her friends had survived knowing about.
+
+Later, alone in her room, the quiet returned.
+
+Cordelia undressed without summoning the Beneficent jewelry. The little Rose drew her eye in the mirror. Pale petals rested low against warm bronze skin, delicate enough to resemble ornament and precise enough to remind her that a machine now possessed limited authority over one of the most private things her body could do.
+
+She touched the silver zero with one fingertip.
+
+No command came. Nothing stimulated her. She was merely a woman in a lamplit room, free to put on a nightdress, read for an hour and sleep.
+
+That should have made the mark less provocative.
+
+Instead its patience did.
+
+Five years had sounded grand in the workshop, where gold letters and impossible wealth made duration abstract. Here it became five winters, five summers, hundreds of uneventful breakfasts and thousands of nights in which she would remember what she had asked for. Cordelia watched her own fingertip trace one unlit petal and felt a private shiver that was equal parts anticipation and disbelief.
+
+*You could withdraw tomorrow,* she reminded herself.
+
+The thought was true. It was also disappointingly uninteresting.
+
+In another guest room, Zephira stood before a smaller mirror and arrived at much the same conclusion by a less scholarly route.
+
+"Stupid," she told the woman reflected there.
+
+Her reflection, naked except for a rose with twenty pale petals, looked unconvinced.
+
+Zephira covered the mark with her palm. Its magic was dormant, but the skin beneath her hand felt warm from nothing more supernatural than attention. She imagined the first rune appearing at midnight. She imagined the first task. She imagined walking back into Emily's workshop and announcing that the whole enterprise had been beneath her.
+
+The last image produced no excitement at all.
+
+"Still stupid," she said, and went to bed without withdrawing.
+
 ## Chapter Two: The First Theft
 
 Cordelia spent the first enrolled day killing Fallen in the Blood Moor.
@@ -346,6 +442,34 @@ Emily smiled. "You sound disappointed."
 
 "Naturally."
 
+Emily withdrew through the canvas. Cordelia remained where she was, one hand still beneath the blanket and the other spread over the Rose.
+
+The most disorienting part was not frustration. She knew frustration. Every poor drop, every failed enchantment and every charming person who had interrupted a promising evening to discuss resistance tables had supplied some variety of it. This was stranger: her body had reached a conclusion from which her mind had been excluded. The muscles of her abdomen softened. Her pulse began to slow. Between her thighs, the immediate urgency had ebbed just enough to prove the orgasm had physically occurred.
+
+Yet the satisfaction which should have made turning over and sleeping seem natural was absent.
+
+Cordelia lay back and stared at the dark roof of the tent.
+
+*One,* she thought.
+
+The count felt less like a record than a possession claim. Somewhere inside the pale Rose rested something that had belonged to her a moment earlier. The thought made her cheeks warm, which irritated her; the warmth traveled lower, which irritated her more.
+
+She did not try again. That restraint mattered to her. She put both hands above the blanket, recited the properties of cold resistance until the inside of her head became orderly, and eventually slept.
+
+At breakfast Charsi asked whether the enrollment had affected either woman's rest.
+
+"No," Cordelia said.
+
+"Not at all," Zephira said.
+
+Emily, seated invisibly inside the stone wall behind them, tapped once for each recorded theft.
+
+Cordelia buttered her bread.
+
+Zephira looked at the wall. "If that happens again, I'm putting a spear through the masonry."
+
+"That seems expensive," Charsi said, and turned away to hide a smile.
+
 Zephira lasted until the third night.
 
 She worked escort duty during the day, drank with two caravan guards in the evening and told Cordelia twice that the Rose was less troublesome than an old knee scar. The tattoo remained hidden beneath her short linen shirt. Her rune display acquired an Ohm and a Sur beside Vex.
@@ -389,6 +513,34 @@ The second build took longer because her body had physically reset, but frustrat
 **MUTED ORGASM RECORDED: 2.**
 
 Zephira removed the Pearl, threw it onto the pillow and spent ten minutes pretending this had solved anything.
+
+The Pearl landed against the headboard, rolled into the hollow between mattress and wood and continued vibrating at the setting Zephira had neglected to cancel.
+
+The bed began to knock against the wall.
+
+Below, someone in the tavern applauded in rhythm.
+
+Zephira froze.
+
+Atma's calm voice carried through the floorboards. "The north guest room has a loose shutter. Kindly return to your drinks."
+
+The knocking accelerated as the Pearl found a resonant angle.
+
+"Enthusiastic shutter," a caravan guard observed.
+
+Zephira lunged across the bed, caught the Pearl and silenced it. She remained on all fours with her braid hanging over one shoulder, her face hot enough to illuminate the room and her body treacherously responsive to the posture.
+
+No one downstairs knew. Atma might know, because Atma knew almost everything occurring above her tavern and was kind enough to leave most of it unspoken. The other patrons had heard furniture and invented a harmless explanation because harmless explanations were comfortable.
+
+Zephira sat back on her heels.
+
+The secrecy ought to have restored her dignity. Instead she felt a brief, shameful disappointment that no one had guessed. The thought was ridiculous. She rejected it immediately, which did not prevent it from returning in a more precise form: she did not want strangers to know. She wanted someone who understood to know, and to recognize exactly what the proud Amazon upstairs had done to herself.
+
+The Rose gave one faint pulse against her abdomen.
+
+"You stay out of this," she told it.
+
+It did. This somehow felt smug.
 
 The task catalogues became available the next morning.
 
@@ -434,6 +586,82 @@ For the next week they completed no tasks.
 
 Ordinary life continued. Cordelia found two duplicate uniques and one flawless topaz. Zephira won forty gold at dice, lost sixty and insisted that variance favored her over a sufficiently long horizon. They ate with friends, repaired equipment and slept. Neither wandered through the day insensible with need.
 
+That ordinariness required adjustment of its own.
+
+On the sixth morning, Cordelia and Zephira shared a table at Atma's while a sailor at the next table described a sand maggot as long as his ship. Cordelia was cataloguing charms. Zephira was trying to repair the leather wrapping on a javelin without admitting that Charsi could have done it better in one tenth the time.
+
+"Six," Cordelia said, without looking up.
+
+Zephira pulled the wrapping tight. "Five."
+
+"I did not ask."
+
+"You placed the number in the air and waited."
+
+"It referred to small charms lacking a useful suffix."
+
+"Of course."
+
+The sailor leaned over. "Six maggots?"
+
+Cordelia considered him. "Six disappointing outcomes from repeated effort."
+
+"Five," Zephira said. "And mine were not disappointing. They were stolen."
+
+The sailor's expression became politely blank.
+
+Atma appeared with coffee before he could ask a question from which no one would recover. She placed one cup beside each woman.
+
+"The cellar has rats again," she told the sailor. "If you wish to compare counts, I can offer useful work."
+
+He returned to his breakfast.
+
+Atma turned to Cordelia. Her gaze rested for half a second upon the hidden place below the sorceress's belt. "Six seems sufficient to establish function."
+
+"Replicated results strengthen confidence."
+
+"And five?" Atma asked Zephira.
+
+"Poor judgment."
+
+"Repeatedly?"
+
+"The first four could have been variance."
+
+Atma left them with the serene expression of a woman whose tavern had recently become much more entertaining without requiring any alteration to its menu.
+
+Later that day Cordelia spent four uninterrupted hours beneath the cathedral clearing skeletons from a collapsed archive. Nothing erotic occurred. The Rose stayed cool while she counted breaths between spells, balanced fire against narrow passages and recovered three dry pages of a tax record no living kingdom still honored. She was pleased by the work. Her body belonged entirely to the practical rhythm of danger and magic.
+
+That distinction reassured her. The sentence had not swallowed her life; it waited at its margins.
+
+It waited when she washed dust from her skin that evening and became aware of water traveling over the Rose. It waited when she changed into a clean robe and the fabric brushed nipples made slightly more sensitive by memory. It waited when Charsi leaned across a workbench to show her a repaired clasp and Cordelia's mind supplied, entirely without permission, the category list the blacksmith had filled out in private.
+
+Cordelia thanked Charsi, paid for the repair and left without betraying any of this.
+
+The success made the walk back to her room feel suspiciously like defeat.
+
+Zephira's days developed different interruptions. She could forget the sentence through a patrol, a wager or the loud part of an argument. Stillness was more dangerous. Sitting through a boot repair allowed her to feel the seam of her trousers above the Rose. Waiting for a drink allowed her to remember the Pearl. Lying down brought back the theft so vividly that she would roll onto her stomach in annoyance and discover that pressure was not an improvement.
+
+She refused the catalogue partly because it wanted an admission before it offered relief. A task was not merely an act. It was evidence that she had become uncomfortable enough to bargain.
+
+By the ninth day the machine knew this and began displaying its invitations without being summoned.
+
+One appeared faintly in the polished side of her cup while she drank with two caravan guards.
+
+**A FINDER MAY BE REQUESTED AT YOUR CONVENIENCE.**
+
+Zephira turned the cup around.
+
+The sentence rotated to face her.
+
+She put a coaster over it.
+
+"Bad vintage?" one guard asked.
+
+"Pushy cup."
+
+The guard, accustomed to Lut Gholein, accepted this.
+
 Yet arousal had acquired consequences. A private touch, a suggestive dream or the pressure of clothing could build toward a climax which their bodies completed and the Rose removed. Each theft left no dangerous physical edge, only memory, frustration and an increasingly quick return of desire.
 
 Cordelia recorded six muted orgasms by the tenth day.
@@ -463,6 +691,44 @@ Zephira accepted the finder assignment on day twelve and spent the next six hour
 The delay was permitted. Acceptance created a task token but did not activate the Rose conditions until she entered the restraint and called for a finder. Zephira carried the token through breakfast, a bowstring repair and an argument with a merchant who had described chipped topazes as *decorative*. It remained warm inside her belt pouch.
 
 By afternoon it seemed less like an invitation than a small animal following her.
+
+Preparing for it required the sort of errands which made private intentions feel absurdly public.
+
+Zephira took a damaged wrist cuff to a narrow magic shop near the docks. The proprietor was a young man with magnificent earrings and the exhausted discretion of someone who had repaired too many enchanted garments to retain curiosity.
+
+"The hinge needs to bear lateral strain," Zephira told him.
+
+"Combat restraint?"
+
+"Training."
+
+"Against what?"
+
+"Lateral strain."
+
+He examined the cuff, the padded interior and the owner-release sigil deliberately placed where a bound hand could not reach it.
+
+"Naturally. Four gold."
+
+"Two."
+
+"Four, and I do not ask why the matching cuff has teeth marks."
+
+Zephira paid four.
+
+At the cloth stall she bought a square of soft linen for cleaning the Pearl, rejected three colors as too conspicuous and finally chose scarlet. At the fruit stall she purchased dates because hunger after a long restraint was practical to anticipate. The woman selling them wrapped the packet and added one extra with a maternal smile.
+
+"For your young man," she said.
+
+"There is no young man."
+
+"Young woman, then."
+
+"There is no—" Zephira stopped. An unknown eligible finder waited somewhere in the curriculum's network. "That is not the point."
+
+The seller added a second date. "Complicated afternoon."
+
+By the time Zephira climbed the tavern stairs, she had acquired repaired cuffs, scarlet linen, food for two and the distinct impression that Lut Gholein had understood more than she had said while getting every detail wrong.
 
 She rented a private storage room above the western end of Atma's tavern. The room had thick walls, a barred window facing the sea and one door whose lock had recently been replaced. Zephira checked the door twice. The consent veil would hide any accidental glimpse through the window, although the old glass admitted only sky and a narrow strip of harbor.
 
@@ -537,6 +803,14 @@ No name appeared.
 Zephira's body reacted before pride organized an objection. Her abdomen tightened. Both knees drew uselessly against the open angle imposed by the floor plates. The Pearl felt suddenly enormous despite doing nothing.
 
 Footsteps crossed the passage outside.
+
+Before they reached her, ordinary life persisted through the walls with exquisite indifference. A delivery boy dragged a crate down the passage, stopped directly outside the locked room and complained that someone had moved the lamp. Atma directed him to the cellar. A lute began below, lost the same chord three times and was joined by a patron who sang confidently in another key.
+
+Zephira sat naked, gagged and visibly aroused in the middle of all that harmless noise.
+
+The contrast deepened the predicament. If the room had been a dungeon, helplessness would have matched its surroundings and become merely adventurous. Here, a few inches of plaster separated her from plates being washed, drinks being ordered and someone asking whether the goat tied at the rear door belonged to anyone. The world had not arranged itself around her fantasy. She had folded the fantasy into an ordinary afternoon and was now trapped inside it while everyone else got on with supper.
+
+The footsteps stopped at her door.
 
 They stopped at her door.
 
@@ -694,6 +968,24 @@ The door closed.
 
 Zephira completed the hour.
 
+Its first ten minutes were easy because Cordelia's last word remained in the room.
+
+Zephira had been called pretty before. Men said it while attempting to buy drinks; women said it while deciding whether her arrogance was charming. Cordelia had said it as an observation about the whole arrangement: the flushed breasts, the useless hands, the open legs, the contradiction between Zephira's furious face and the wet evidence beneath it. She had made helplessness part of the compliment without turning Zephira into someone delicate.
+
+The thought kept the Pearl working against her more effectively than its enchantment.
+
+At twenty minutes she reached the Rose again. Her body tightened against the harness, accepted the physical climax and lost the pleasure into pink light. She sagged against the supporting band afterward, breathing through the gag and listening to a server below recite the day's stew ingredients.
+
+At forty-eight minutes it happened again.
+
+This time the theft made anger flare behind her eyes. She pulled at the cuffs, not to escape but because resistance gave the feeling somewhere to go. The bench did not move. Her breasts, still sensitive from Cordelia's hands, shifted with every effort. The Pearl lowered itself after recording the event, leaving her body quiet and her mind full of the exact thing it had not received.
+
+*You asked for the hour,* she reminded herself.
+
+That was the most humiliating part and, unhelpfully, the most exciting. Cordelia had offered freedom. Zephira had looked at it and chosen to remain.
+
+When the latch finally turned, relief moved through her so openly that she could not pretend the solitude had meant nothing.
+
 When Cordelia returned, the Rose had recorded two more muted orgasms. Neither woman discussed them. Cordelia opened the cuffs in reverse order, supported Zephira while sensation returned to her hands and brought water before touching any other buckle.
 
 The task token dissolved.
@@ -722,6 +1014,30 @@ Zephira reached for it.
 
 The Glass vanished through the wall before she could complete the threat.
 
+Cordelia did not leave immediately afterward.
+
+She helped Zephira into a loose robe, gathered the equipment without commenting upon the scarlet cloth and opened the packet of dates. They ate on the floor with their backs against the bed while the tavern grew louder below. Zephira's wrists bore faint pink circles. Cordelia rubbed a little salve into them only after receiving a nod.
+
+For a while they discussed nothing more compromising than the merchant who had sold the chipped topazes. Zephira imitated his claim that imperfections gave each stone character. Cordelia argued that by this reasoning Gheed possessed enough character to become priceless. The ease of it loosened the last stiffness in Zephira's shoulders.
+
+"Being found did not ruin it," Zephira said at last.
+
+Cordelia looked at the half-eaten date in her hand rather than making the admission larger by staring. "No."
+
+"I still chose every lock."
+
+"And chose which touch followed."
+
+Zephira flexed the hand Cordelia had salved. Sharing the end of the arrangement had not taken authorship away from her. It had given the private decision a witness, then required that witness to leave when asked. That was different from surrendering control, though the difference did nothing to reduce how helpless she had felt on the bench.
+
+"Thirty-five points," she said.
+
+"An excellent afternoon's work."
+
+"Say *pretty* again and I will make you eat the date stone."
+
+Cordelia smiled and wisely took another date instead.
+
 ## Chapter Four: The Shedding Route
 
 Zephira recognized the route.
@@ -739,6 +1055,20 @@ Emily floated beside the route map. "Adaptive reuse."
 "It stole my idea."
 
 "You enrolled it as training data."
+
+Zephira spent the morning doing everything except accepting.
+
+She helped unload a spice caravan, sharpened six javelin heads and sat through one of Lysander's explanations of why a tonic which smelled like boiled sandals was technically odorless. The task map followed her from reflective surface to reflective surface. It appeared faintly in a polished shield. It drew the route across the surface of her coffee. When she passed a rain barrel, a miniature version of herself walked naked around its rim.
+
+Atma found her trying to muddy the water.
+
+"That seems unlikely to improve the coffee," she said.
+
+"The machine is nagging me."
+
+"It has learned from you."
+
+Zephira considered denying the resemblance and could not do so honestly. She accepted the task shortly before dusk, largely to stop seeing her own tiny bare backside marching around beverages.
 
 The new assignment took place at dusk while the market remained open. A consent veil would show unregistered observers a blonde traveler in a loose blue robe. Registered witnesses would see the actual clothing and restraint. Zephira would not know which version any particular face received.
 
@@ -800,6 +1130,24 @@ The veil showed unregistered eyes a robe. Anyone eligible saw one breast complet
 
 No one reacted.
 
+A dun-colored goat did.
+
+It had slipped its tether beside the date stall and discovered the fallen silk before its owner noticed. To every unregistered observer, the animal appeared to seize an abandoned blue packing rag. To Zephira it picked up the intimate piece of covering which had just dragged over her nipple and began chewing with obvious satisfaction.
+
+"Drop that," she hissed.
+
+The goat backed away, silk dangling from its mouth.
+
+Zephira could not reach for it. The route forbade retrieval; the cuffs made the prohibition academic. She continued walking while the goat followed for three paces, apparently convinced the exposed Amazon might shed additional courses.
+
+Its owner finally caught the tether. "Sorry, miss. He eats anything."
+
+"I noticed."
+
+"Nice robe."
+
+Zephira looked down at one bare breast and the remaining strip of translucent silk. "Thank you."
+
 Zephira walked on.
 
 The lack of reaction should have reassured her. Instead it sharpened every glance into a question. Had the spice seller's eyes remained upon his jars because he saw a robe, or because his charm did not permit the task? Did the woman selecting dates look away from courtesy after seeing bronze skin and one darkened nipple? Had anyone registered besides the four women Emily invited?
@@ -834,6 +1182,28 @@ The fountain square held perhaps thirty people.
 
 Most saw a robe.
 
+One elderly merchant stepped directly into her path holding a rolled carpet beneath each arm.
+
+"Eastern caravanserai?" he asked.
+
+Zephira stopped. A fully clothed traveler could simply have pointed. Her hands were cuffed behind her, breasts bare, lower body exposed except for stockings and the fine harness whose Pearl pressed more insistently because she had halted.
+
+"Past the fountain," she said. "Second street north."
+
+"This fountain?"
+
+"There is only one fountain."
+
+"People say fountain when they mean well."
+
+The Pearl increased another degree. Zephira's toes curled inside her sandals.
+
+"The well is west. The fountain is behind you. Turn around."
+
+The merchant turned, discovered the fountain and laughed at himself. He thanked the apparently robed traveler and continued on his way.
+
+Zephira resumed hers with the measured dignity of a woman who had just given directions while naked, bound and being mechanically teased to someone who would forever remember nothing more remarkable than a helpful blue robe.
+
 Someone did not.
 
 Zephira could feel the possibility without identifying its source. Her sea-green eyes remained forward. Her posture tried to become martial and merely presented her breasts more proudly. Strong thighs carried her past a pair of guards, one elderly merchant and a veiled woman whose attention lingered half a second too long.
@@ -851,6 +1221,18 @@ The gate guard glanced toward her.
 His eyes passed over an illusionary robe and ordinary boots.
 
 Zephira knew this. She also knew Charsi's charm had seen through everything.
+
+"Long walk in those boots?" the guard asked.
+
+The veil supplied boots where Zephira saw only bare feet.
+
+"They seemed more practical when I left."
+
+"Always do. Sand gets into everything."
+
+Zephira glanced at the narrow Pearl harness and decided the man had accidentally achieved enough accuracy.
+
+"Yes," she said. "It does."
 
 She turned toward the harbor.
 
@@ -934,6 +1316,32 @@ Zephira looked down at the restored blue fabric, now far more concealing than sh
 
 Atma poured another cup. "You have been spending too much time with Cordelia."
 
+They ate late supper in the kitchen after the customers had gone. Atma sliced bread; Zephira, restored to a cotton shirt and loose trousers, cut cheese with the solemn concentration of someone reclaiming command of a blade. The route had ended an hour earlier, but her body still remembered the Pearl whenever fabric shifted against her. Nine stolen climaxes had made memory efficient.
+
+"Did anyone besides you and Charsi see?" Zephira asked.
+
+"The register will not disclose that."
+
+"I know."
+
+"Would you like me to speculate?"
+
+Zephira pushed a slice of cheese across the board. "No."
+
+Atma ate it.
+
+The market outside settled by degrees. Shutters closed. Someone rolled an empty cart over the stones. The goat responsible for eating Zephira's top bleated from a nearby courtyard and received a profane answer from its owner.
+
+Zephira laughed into her cup.
+
+Her strongest feeling was not embarrassment, though enough of it remained to warm her face whenever she remembered Charsi's startled eyes. It was an odd pride. She had carried a private, ridiculous desire through the busiest square in the city and returned with it intact. The veil had protected everyone who had not agreed to see. The women who had agreed had been permitted to know. She had been exposed and still held the boundaries herself.
+
+That should have satisfied the appetite.
+
+Instead she found herself wondering which route the machine would choose if she asked for one in the Rogue Encampment.
+
+She rejected the thought, finished supper and discovered that rejection no longer meant the same thing it once had.
+
 ## Chapter Five: Thank You for Stopping
 
 Cordelia chose the hundred-point task because smaller humiliations had begun to seem inefficient.
@@ -951,6 +1359,22 @@ The actual reason waited farther down the assignment tablet.
 **VALUE: 100.**
 
 One task would purchase one release window. The arithmetic had the appealing symmetry of an obvious mistake.
+
+Cordelia left it open for three days.
+
+On the first, she treated the assignment as an object of research. She copied its phases into a notebook, underlined the point at which the Rose would reactivate and produced a small diagram of the release economy which explained nothing the original tablet had not already said. Whenever her pen reached *must ask her partner to stop*, she paused long enough for the ink to thicken.
+
+On the second day she carried the notebook through a Grail run beneath the cathedral. It remained sealed in her pack while she froze a pack of goatmen, opened eleven chests and found a unique ring which proved to be her ninth Nagelring. Combat occupied her cleanly. The task did not whisper during danger. It waited until afterward, when she sat on a fallen pillar eating bread and imagined the precision of the required request.
+
+Not merely stopping before release. Asking for it.
+
+Cordelia could endure denial without embarrassment. She had survived forty-five days beneath the Rose while friends drove her repeatedly through stolen climax. But this task placed the denial inside her own voice. A partner would be touching her; genuine pleasure would be available; then Cordelia would have to make herself understood clearly enough that the touch ended. No curse would take responsibility. No demon would force the choice. She would feel the exact instant satisfaction became possible and argue against her body in front of someone who knew her.
+
+The thought followed her back to camp in silence.
+
+At supper, Zephira complained about an escort captain who had packed twelve bottles of wine and no spare bowstring. Cordelia laughed in the right places, passed Charsi the potatoes and felt the task tablet waiting half a monastery away. The division fascinated her: an ordinary evening above the table, a gathering insistence beneath it. She was not overwhelmed. She was simply aware, with increasing frequency, of what she might choose.
+
+On the third morning she woke from a dream in which she never found the courage to say *stop*. The disappointment was so sharp that she accepted the assignment before breakfast.
 
 Cordelia sent the invitation before she could improve her judgment.
 
@@ -1079,6 +1503,12 @@ Zephira maintained the exact pressure.
 Cordelia said nothing.
 
 One more stroke.
+
+Her mind offered bargains at extraordinary speed. She could wait one more second and claim she had misjudged the threshold. She could let the release happen, fail the task and select another. One hundred points were imaginary; the pleasure beneath Zephira's hand was immediate, alive and hers for the taking. Weeks of stolen conclusions seemed to crowd behind it, promising that this one genuine climax would be vast enough to justify anything.
+
+The cuffs held her hands, not her voice.
+
+That distinction was the entire task.
 
 Need broke through elegance.
 
@@ -1276,6 +1706,62 @@ It did not yet reveal its trigger.
 
 She told herself that disappointment was merely academic.
 
+They dressed slowly afterward.
+
+Zephira helped Cordelia pull her robe over shoulders still marked faintly by the table's support. Cordelia tied the belt, saw one dark petal disappear beneath blue fabric and experienced the peculiar dislocation of looking ordinary again. Anyone in the corridor would see a composed sorceress leaving a workshop with a friend. No one would know that a single chosen word could now make her body answer before her dignity had assembled a defense.
+
+"Food?" Zephira asked.
+
+"Immediately."
+
+They found the monastery kitchen nearly empty except for Charsi, who was making honey cakes with more optimism than skill. Cordelia took over the pan before the first batch could become charcoal. Zephira stole one too early, burned her fingers and blamed the recipe.
+
+For half an hour, no one mentioned the task.
+
+Cordelia found the silence kind rather than evasive. She ate two cakes, listened to Charsi explain a dispute between the forge goats and let the ordinary sweetness settle against a frustration that remained decidedly unsweet. The Rose had physically reset her once during the task. Her body was not in pain. Yet every quiet interval seemed shaped around the missing release, like cloth draped over an absent object.
+
+Charsi reached across her for the honey.
+
+"Sorry," the blacksmith said. "Could you—"
+
+Her apron caught a spoon. The spoon knocked the sugar bowl. Zephira caught it before it fell.
+
+"Useful woman," Charsi said to her.
+
+"Careful," Zephira replied. "Apparently praise encourages me."
+
+Cordelia nearly choked on her cake.
+
+Charsi looked between them. "What happened?"
+
+"Nothing suitable for baking," Cordelia said.
+
+The next morning Zephira tested the association's boundaries while they repaired equipment in the courtyard.
+
+"Gheed charged that caravan twice for the same map," she said. "Thieving whore."
+
+Nothing happened to Cordelia.
+
+She continued polishing her staff. "The inscription specified a consenting erotic context."
+
+"I was checking."
+
+"Your testing lacks rigor."
+
+Zephira waited until Charsi carried a repaired breastplate inside and the courtyard became private. Then she stepped behind Cordelia, placed one hand lightly at her waist and spoke the same word beside her ear.
+
+Pleasure moved through Cordelia at once. Her polishing cloth stopped halfway down the staff. A warm contraction answered below her belt; nipples tightened beneath her robe; the Rose glowed against her abdomen as it absorbed the consequence of its own conditioning.
+
+Zephira removed her hand.
+
+"Context-aware," she said.
+
+Cordelia resumed polishing with more pressure than the wood required. "Your method remains unnecessarily physical."
+
+"Better controls."
+
+Neither mentioned that the word had done more than make Cordelia aroused. It had reminded both women of the exact choice which gave it power: release offered, release refused. That memory followed them quietly through the rest of the morning, surfacing only when their eyes met and one of them looked away first.
+
 ## Chapter Six: Registered Service Hours
 
 The collar did not permit euphemisms.
@@ -1321,6 +1807,42 @@ The monastery was busy enough to make the veil matter. Rogues crossed the courty
 Cordelia could not identify them by sight.
 
 Every glance carried a moment of uncertainty before reason dismissed it. The carpenter looked toward her throat and returned to his hinge. A Rogue smiled politely. A merchant's eyes passed over the collar without reaction. Cordelia knew they saw nothing; the charm had guaranteed it. Her body nevertheless remained attentive to the possibility that one familiar woman might round a corner and read exactly what Cordelia had volunteered.
+
+A young Rogue carrying a stack of fletching stopped beside them.
+
+"Pretty necklace," she told Cordelia.
+
+Cordelia saw black enamel declaring her availability. The Rogue saw narrow silver.
+
+"Thank you."
+
+"Where did you buy it?"
+
+"It was commissioned."
+
+"Could Charsi copy it?"
+
+Zephira made a sound which became a cough only through significant effort.
+
+"The inscription is unusually personal," Cordelia said.
+
+"There is an inscription?"
+
+"Only in the correct light."
+
+The Rogue tilted her head, found nothing on the apparent silver and hurried away when one fletching slid from the stack. Cordelia watched her go.
+
+"You handled that well," Zephira said.
+
+"Do not praise me. The collar may decide to report it."
+
+It changed immediately.
+
+**THE WHORE IS CONCERNED HER NECKLACE WILL DISCLOSE THAT SHE IS A WHORE.**
+
+The trigger sent a warm pulse through Cordelia before the eligible woman had even rounded the corner.
+
+Zephira read it. "Efficient machine."
 
 The first was Charsi.
 
@@ -1432,6 +1954,24 @@ The bracelets opened after Charsi cleaned herself and Cordelia. Blue fabric retu
 
 Cordelia continued through the monastery.
 
+She took the long way to the library.
+
+The collar's first completed service remained in her body as a set of incompatible truths. She was glad Charsi had asked. She was embarrassed that the request had pleased her before she even knelt. She resented the machine for announcing satisfaction she could not deny, and the resentment itself kept the wording vivid enough to arouse her again.
+
+Outside the chapel, three Rogues were replacing rain barrels. They saw nothing unusual when Cordelia passed. One asked whether the western cistern had been purified. Cordelia stopped, gave a concise explanation of residual curse management and recommended salt around the lower seal.
+
+Her answer was competent. Her tone was steady. Beneath the harmless glamour, her mouth still tasted faintly of Charsi and the black collar called her a denied whore.
+
+The coexistence mattered. Submission had not erased the sorceress who knew how to diagnose a cursed cistern. It had simply given that sorceress an outrageous private afternoon.
+
+Zephira, walking beside her, seemed to understand the thought without hearing it.
+
+"You look pleased with yourself," she said.
+
+"The cistern diagnosis was elegant."
+
+"Naturally."
+
 Atma accepted the next invitation in the old library.
 
 She sat beside an open ledger wearing a dark desert skirt and loose white blouse. Her blue-stone charm rested upon the page. When Cordelia entered, Atma read the collar before looking at her face.
@@ -1529,6 +2069,36 @@ Kashya's expression changed by less than a degree.
 "Effective," she said, and walked away.
 
 Cordelia completed the six hours without another partner requesting service. The collar used the absence cruelly, cycling through observations about waiting, availability and the fact that Cordelia checked each eligible woman's face before pretending she had not.
+
+Gheed encountered her during the final half hour.
+
+He saw only the silver necklace, yet his commercial instincts detected an opportunity independent of magic.
+
+"New jewelry," he said. "Very tasteful. I carry a polish which prevents tarnish, curses and unflattering inscriptions."
+
+The collar currently read:
+
+**THE WHORE HAS SERVED TWO WOMEN AND WOULD HAVE KNELT FOR A THIRD.**
+
+"Does it remove existing inscriptions?" Cordelia asked.
+
+"For twelve gold, it removes the appearance of them. For twenty, the memory."
+
+"Whose memory?"
+
+"At that price, yours."
+
+Zephira stepped between them. "Go away."
+
+"I also insure enchanted collars against unauthorized tightening."
+
+"It is authorized," Cordelia said before reconsidering the wisdom of accuracy.
+
+Gheed's brows rose. "Then congratulations. Polish remains twelve gold."
+
+Kashya appeared in the command-room doorway.
+
+Gheed left without completing the sale.
 
 At sunset it opened.
 
@@ -1666,6 +2236,38 @@ It was not a promise.
 
 Cordelia heard one anyway.
 
+They remained in the courtyard until the sky turned violet.
+
+Zephira's genuine release left her loose-limbed and unexpectedly quiet. She ate bread dipped in oil, drank another cup of water and occasionally looked down as if checking that the Rose truly remained pale. Cordelia sat beside her with two dark petals hidden beneath her robe and a denial which had survived the same task twice.
+
+"Do you regret taking it?" Cordelia asked.
+
+Zephira considered. "No."
+
+"That was unusually quick."
+
+"I knew before you finished asking."
+
+Cordelia smiled. Jealousy would have been simple; what she felt was more interesting. Watching Zephira accept pleasure had made genuine release seem vivid again, almost painfully so. But it also clarified that refusal was not the superior answer. The curriculum was not a contest to see who could suffer longest. Zephira had chosen satisfaction because she wanted it. Cordelia had chosen conditioning because, to her own continuing astonishment, she wanted that more.
+
+Both decisions had been free. That made their difference intimate rather than divisive.
+
+Atma opened the kitchen door and set down a plate of grilled fish without comment. She had restored her composed tavern dress; only a lingering softness around her eyes recalled the afternoon.
+
+"Customers are asking why the courtyard has been closed for three hours," she said.
+
+Zephira took a piece of fish. "Repairs."
+
+"To what?"
+
+The collar, lying inert upon the stones, woke just long enough to display:
+
+**SERVICE INFRASTRUCTURE.**
+
+Atma read it and closed the door again.
+
+Zephira laughed until she had to put down her food. Cordelia joined her, hunger and frustration and affection all present without demanding resolution before supper.
+
 ## Chapter Seven: Everything Below the Ankles
 
 The assignment appeared on day sixty-three.
@@ -1718,6 +2320,40 @@ Four charms responded.
 
 Kashya's charm had not authorized pedal care. Cordelia experienced relief, then wondered why relief carried a narrow thread of disappointment. She ignored both.
 
+The assignment was scheduled for the following afternoon, which left Cordelia one evening to become acutely conscious of her feet during activities which had never required thought.
+
+She removed her boots after a Grail run and found a line of dust around each ankle. Washing it away felt ordinary. Drying carefully between her toes felt less so because the task language had made every small act anticipatory. When she crossed the courtyard barefoot afterward, cool flagstones registered one by one beneath her soles. Nothing had been transferred yet. Still, she imagined all her sensitivity concentrated there and nearly stumbled over a threshold she had crossed for years.
+
+Charsi found her in the forge doorway carrying a bottle of wine-red lacquer.
+
+"Anya said presentation contributes five points," Cordelia said.
+
+"Did she?"
+
+"With a straight face."
+
+Charsi looked at the bottle and then at Cordelia's bare feet. "Sit down."
+
+The work was entirely innocent by the curriculum's definition; the task had not begun, and neither woman's charm activated. Charsi shaped each nail with a small file, brushed away dust and painted the lacquer in careful strokes while Cordelia sat upon a forge stool. They discussed a cracked staff socket, the rising price of leather and whether the goat which had eaten Zephira's silk was the same one now sleeping beside the coal shed.
+
+Daily life made the preparation more intimate, not less. Cordelia watched Charsi hold each toe steady with work-warm fingers and imagined those same hands after the transfer. Charsi concentrated upon neat edges, apparently unaware that her ordinary care had become rehearsal inside Cordelia's mind.
+
+Then she looked up.
+
+"You're awfully quiet."
+
+"I am avoiding moving."
+
+"I finished that foot five minutes ago."
+
+Cordelia looked down. All five polished toes had curled slightly against Charsi's palm.
+
+Charsi's freckles disappeared into a blush. She released the foot, and both women began discussing leather prices with renewed commitment.
+
+That night Cordelia slept normally for almost six hours. She woke once with the sheets brushing her soles and lay still in darkness, feeling a low warmth the Rose had not caused. The scene ahead did not frighten her. Four women had accepted with full knowledge; the frame would support her; withdrawal remained available. What unsettled her was the certainty that they would discover something together which Cordelia already suspected: a part of her body she could ordinarily conceal inside boots was about to become incapable of secrecy.
+
+She curled her toes beneath the blanket and waited for morning.
+
 The presentation frame unfolded inside Emily's workshop.
 
 It resembled a reclining chair designed by someone who considered feet the proper height for conversation. A padded back supported the torso at a gentle angle. A low rail behind it held two wrist cuffs at the level of Cordelia's waist; her arms would pass comfortably around the sides of the frame, leaving her hands secured behind the backrest rather than trapped beneath her body. A broad band supported her below the breasts, another stabilized her hips and separate padded rests carried her calves. The rests ended beneath the ankles, leaving both feet elevated, separated and completely unsupported beyond their narrow cuffs.
@@ -1752,11 +2388,11 @@ They were ornamental as much as structural: rose gold bands no wider than a fing
 
 Charsi opened her case.
 
-"You polished them already."
+"You kept the polish intact."
 
 Cordelia's nails were neatly shaped, each one lacquered a deep wine red which shone beneath the workshop lights. The color made the warm bronze of her feet appear richer. Oil would later darken the smooth skin of her soles and show every flex of tendon, but for now they remained clean and soft, faintly paler underneath than across their arched tops.
 
-"Anya said presentation contributed five points," Cordelia replied.
+"It has been less than one day," Cordelia replied.
 
 "It does not," Emily said.
 
@@ -2069,6 +2705,16 @@ The second option would leave her denied and permanently teach her body to recei
 No points. No runes. No shortened sentence.
 
 Cordelia looked at Zephira's bare foot.
+
+Her thoughts were lucid. That mattered enough to inventory them.
+
+She wanted release with an urgency that made the first option seem to glow brighter than the text around it. She could still feel the fourteen stolen conclusions as a history written through her body: every contraction completed, every satisfaction absent. If she accepted, any of the four women could touch her. The Rose would open. The pressure which had followed her through ordinary meals, battles and sleepless moments would finally resolve.
+
+She also wanted the second choice.
+
+Not because denial had confused her judgment, nor because the machine had hidden its cost. The cost was displayed with almost insulting clarity. She wanted to know that when Zephira offered her foot later—in private, by agreement, with no points available—Cordelia would open her mouth and feel her own voluntary surrender answer through every sensitive place. She wanted another permanent piece of evidence that the curriculum had not merely happened to her. She had shaped it with each refusal.
+
+The desire embarrassed her. It did not become less hers for doing so.
 
 "Forfeit."
 
