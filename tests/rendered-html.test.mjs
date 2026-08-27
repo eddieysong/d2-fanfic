@@ -32,7 +32,7 @@ test("renders the chronological archive index", async () => {
   assert.match(html, /href="#curriculum">Long Curriculum<\/a>/);
   assert.match(html, /The Beneficent Archives/);
   assert.match(html, /View the gallery/);
-  assert.match(html, /<strong>83<\/strong>\s*entries/);
+  assert.match(html, /<strong>84<\/strong>\s*entries/);
   assert.doesNotMatch(html, /codex-preview|SkeletonPreview|Your site is taking shape/);
 });
 
@@ -146,7 +146,7 @@ test("renders the Long Curriculum after the Black Rose arc", async () => {
   const generated = await readFile(new URL("../lib/library.generated.ts", import.meta.url), "utf8");
   const lastCruelty = generated.indexOf("cruelty-08-the-complete-curriculum");
   const firstCurriculum = generated.indexOf("curriculum-01-enrollment-and-the-eligible-list");
-  const lastCurriculum = generated.indexOf("curriculum-08-no-assignment-pending");
+  const lastCurriculum = generated.indexOf("curriculum-09-as-long-as-pleasant");
   const archives = generated.indexOf("35-the-intended-effects");
   assert.ok(firstCurriculum > lastCruelty);
   assert.ok(lastCurriculum > firstCurriculum);
@@ -159,6 +159,13 @@ test("renders the Long Curriculum after the Black Rose arc", async () => {
   assert.match(finalHtml, /She thought about all the times when losing was not an option/);
   assert.match(finalHtml, /Uber Tristram had lasted forty-five days/);
   assert.match(finalHtml, /She did not decide/);
+
+  const releaseDayResponse = await render("/read/curriculum-09-as-long-as-pleasant");
+  assert.equal(releaseDayResponse.status, 200);
+  const releaseDayHtml = await releaseDayResponse.text();
+  assert.match(releaseDayHtml, /Chapter Nine: As Long as Pleasant/);
+  assert.match(releaseDayHtml, /STIMULATION MAY CONTINUE FOR AS LONG AS THE SUBJECT FINDS IT PLEASURABLE/);
+  assert.match(releaseDayHtml, /She was satisfied/);
 });
 
 test("renders Emily's four-volume catalogue after Cain's monograph", async () => {

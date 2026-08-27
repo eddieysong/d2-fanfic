@@ -2989,3 +2989,715 @@ Next time, she might take the release.
 She did not decide.
 
 Eventually the book slipped farther down the mattress and the coals settled. She was still considering both choices when her breathing slowed into sleep.
+
+## Chapter Nine: As Long as Pleasant
+
+The curriculum offered Zephira an entire day of pleasure over breakfast.
+
+She nearly spilled coffee across the task slate.
+
+Atma had served eggs, flatbread, dates and a small dish of honey in the courtyard behind the tavern. Morning sun reached only the upper wall. Below it, the flagstones remained cool, the fountain talked quietly to itself and three pigeons conducted a territorial dispute beneath an empty table.
+
+Zephira had been reading the ordinary catalogue between bites. Deliver a sealed package while wearing an inconvenient collar. Spend two hours unable to use the word *no* except for actual refusal, which struck her as a task designed by someone excessively pleased with nuance. Allow the machine to select her clothing for one evening at Elzix's tables.
+
+Then the slate changed.
+
+**RESTORATIVE PRACTICUM AVAILABLE.**
+
+**COST: ONE EARNED RELEASE WINDOW.**
+
+**ROSE SUSPENSION: SUNRISE TO SUNSET.**
+
+**FORMAT: SELF-DIRECTED RESTRAINT.**
+
+**STIMULATION MAY CONTINUE FOR AS LONG AS THE SUBJECT FINDS IT PLEASURABLE.**
+
+Zephira read the final line again.
+
+One of the pigeons won the argument and immediately looked disappointed by the prize.
+
+"Define *continue*," Zephira said.
+
+The slate expanded.
+
+**THE SUBJECT MAY SELECT CONTINUOUS, INTERMITTENT OR RESPONSIVE STIMULATION. ORGASMS OCCUR NORMALLY. THE ROSE WILL RETURN A SAFE PORTION OF STORED PLEASURE THROUGHOUT THE SUSPENSION PERIOD. THE PRACTICUM WILL REDUCE OR PAUSE STIMULATION WHEN CONTINUATION CEASES TO BE PLEASURABLE.**
+
+"Every orgasm remains mine?"
+
+**YES.**
+
+"All day?"
+
+**FROM LOCAL SUNRISE TO LOCAL SUNSET.**
+
+"And the restraints?"
+
+**RELEASE AT SUNSET.**
+
+Zephira lowered the slate.
+
+Atma crossed the courtyard carrying a tray of clean cups. Her dark eyes moved from Zephira's untouched coffee to the expression Zephira had failed to organize.
+
+"Bad assignment?"
+
+"Terrible," Zephira said.
+
+"You are smiling."
+
+Zephira corrected her mouth. "The danger is subtle."
+
+Atma looked at the slate. Its lettering vanished before she could read it, respecting the curriculum's privacy with timing that felt suspiciously comic.
+
+"Will you require the room tomorrow?" Atma asked.
+
+"No."
+
+"The room tonight?"
+
+"No."
+
+"A larger breakfast?"
+
+Zephira considered twelve hours in restraints. "Yes."
+
+Atma brought two more eggs without asking why.
+
+The practicum remained available for seven days. Zephira spent four of them pretending to consider it.
+
+She took a caravan contract to the Dry Hills, repaired a cracked shield rim and lost twenty-six gold to a sailor who claimed never to have played dice before. She saw Cordelia twice and did not mention the offer. The first time, Cordelia was carrying three books and arguing with Anya about whether a rune vault could develop organizational malice. The second, she was buying almond oil from Atma with an expression of studied neutrality.
+
+Zephira could have asked whether Cordelia had received the same practicum.
+
+She did not.
+
+This one felt like hers.
+
+On the fifth morning she packed for the Lost City.
+
+The preparation resembled a military expedition conducted by someone whose intended enemy was personal restraint. She brought two water skins, a length of clean drinking tube, salve, a thick blanket and enough dark-red rope to decorate a siege engine. She packed bread, cheese, dried fruit and a second breakfast. Her armor, spear and shield occupied the remaining space with the dignity of equipment unaware that it would spend most of the following day beyond reach.
+
+Atma added a packet of dates.
+
+"For the danger," she said.
+
+"Subtle danger requires food."
+
+"Naturally."
+
+Zephira reached the ruined bath before sunset.
+
+The hidden chamber had changed very little since her first visit. Blue fish still crossed the floor of the dry basin beneath cracks and sand. Four painted columns held up a ceiling which no longer needed all of them. The narrow opening above admitted one slanting bar of gold, and the old channels carried a cool breath through the room even when the Lost City outside lay silent beneath desert heat.
+
+The Vohl suite awakened when she entered.
+
+The responsive posture plate rose from the basin. The Appraising Glass unfolded beside it into four quiet reflections. Courteous Silence rested within its wall compartment, politely available and, for once, entirely unwanted. The Resonant Pearl rolled into Zephira's waiting palm and gave one small anticipatory pulse.
+
+"Tomorrow," she told it.
+
+The Pearl became still.
+
+Zephira inspected the room before unpacking. Nothing nested beneath the blanket ledges. No claw-viper tracks crossed the entrance. The floor anchors remained solid, the old column rings held her full weight and the privacy seal showed no second living presence within its boundary. She opened a town portal long enough to confirm the destination, closed it again and ate supper beside the empty basin.
+
+Afterward she assembled the restraint.
+
+The posture plate understood her requirement for duration. Instead of offering suspension or a predicament, it extended into a low reclining frame and docked its center into the basin floor. Four rigid arms reached toward separate anchor rings. A broad padded support rose beneath the shoulders and spine; smaller cushions fitted beneath hips, elbows, knees and heels. The result looked less like a torture device than an aggressively specialized sun couch.
+
+Zephira pressed both hands into every cushion.
+
+"Comfortable," she said.
+
+**PLEASURE IS DIFFICULT TO SUSTAIN WHEN THE SUBJECT IS MISERABLE.**
+
+"You have become philosophical."
+
+The plate offered no response.
+
+She arranged the drinking skin above the headrest. Its tube ran through a little silver arm and stopped beside where her mouth would rest. She could catch it between her lips without using her hands. A pinch valve would keep it from leaking upon her face, an indignity the machine apparently considered outside the selected curriculum.
+
+The food presented a harder problem.
+
+Zephira placed bread and dates upon a tray at shoulder height, lay experimentally upon the frame and attempted to reach the nearest piece with her mouth. Her cheek touched the tray. The bread remained half an inch away.
+
+She adjusted it nearer.
+
+On the second attempt, her nose pushed the bread onto the floor.
+
+The Appraising Glass displayed the event from above.
+
+"You recorded nothing," Zephira reminded it.
+
+The image disappeared. A factual caption replaced it.
+
+**FOOD PLACEMENT INEFFECTIVE.**
+
+"I had reached that conclusion."
+
+She ate the bread, moved the remaining provisions beside the blanket for sunset and decided that a large breakfast could carry an Amazon through almost anything.
+
+Zephira slept beside the frame.
+
+She woke before dawn.
+
+The bath was blue with early darkness. Cold air touched her face above the blanket. Somewhere outside, wind moved sand through a narrow passage with the soft, persistent sound of water. The task slate hovered over the basin, waiting for a decision it had already waited five days to receive.
+
+Zephira ate eggs, flatbread, dates and the last of Atma's honey. She drank, used the ruined side chamber which still possessed a functioning drain and washed in water warmed by the posture plate. Every practical act made the approaching helplessness more distinct. The woman who ate could still change her mind. The woman who braided her hair into a heavy coil above the nape could still put on armor and leave. The woman who unrolled dark-red rope across the blanket could still gather it again.
+
+Zephira removed her clothes.
+
+Cool air moved over sun-bronzed skin. Her body had acquired new small marks since the first time she stood naked in this chamber: a pale line near one hip from a demon spear, a faint circle around one ankle where an assignment cuff had remained too long, the little twenty-petal Rose low upon her abdomen. Every petal remained pale.
+
+She touched the tattoo once.
+
+It had muted enough pleasure to make the offer upon the slate feel almost indecently generous.
+
+Zephira began with rope.
+
+She constructed the chest harness by hand, passing dark-red line beneath the full weight of her breasts and crossing it flat over her sternum. Two turns rose around their outer curves. Another settled above them, framing without concealing. She checked pressure with two fingers, adjusted the left side and watched the Appraising Glass show the harness from front, profile and rear.
+
+The color remained an excellent choice.
+
+Red emphasized the warmth of her skin and the softness gathered between parallel lines. Her breasts looked fuller inside the pattern, their dark nipples exposed between crossings which would tighten whenever her breathing deepened. Rope continued around her ribs, narrowed at her firm waist and divided into a lower harness around both hips. She laid every turn carefully. This was not a hurried task arrangement supplied by the curriculum. It was her own work, built upon the body which would shortly be unable to alter any part of it.
+
+She secured a broad band around each upper thigh. Neither attached to anything yet. They rested upon the long, powerful curves like decoration awaiting a purpose.
+
+Last came the Resonant Pearl.
+
+Its lower harness fitted between the lines at her hips. The small silver oval settled against her clitoris, cool enough to draw an involuntary breath. It did not vibrate. Sunrise remained below the eastern wall, and the practicum had not begun.
+
+Zephira lay upon the frame.
+
+The cushions accepted her from shoulders to heels. Her braided hair rested in a hollow above the neck. The support beneath her spine lifted her chest gently, while a broader pad beneath her hips held her pelvis against the posture plate without forcing an arch she would have to maintain. Her knees bent slightly over separate bolsters. The position left her body open to the morning air and the Appraising Glass without placing strain anywhere she could identify.
+
+She offered the final geometry.
+
+Each wrist would be cuffed separately beside and a little above the corresponding shoulder, arms opened into a relaxed angle, elbows fully supported. Each ankle would fasten to a lower arm of the frame. The bands around her upper thighs would connect to separate side rings, preventing her legs from closing or twisting while the cushions continued to carry their weight. A broad line across the hips would anchor her to the central plate. Two short straps from the chest harness would dock behind her shoulders, stopping her from curling forward or rolling even if every limb moved together.
+
+No single connection pretended to restrain the whole body. The floor plate held the frame. The frame opposed wrists, ankles, thighs, hips and torso through separate fixed points. Every effort would end in something solid.
+
+Zephira studied the completed image.
+
+She could flex hands and feet. She could turn her head. She could lift neither arm, close either thigh, roll her hips away from the Pearl nor sit up far enough to reach a fastening. The drinking tube remained beside her mouth. Courteous Silence remained in its compartment.
+
+Comfortable.
+
+Exposed.
+
+Inescapable by every ordinary meaning of the word.
+
+"Term begins at sunrise," she said. "No release before sunset. Responsive stimulation. Continue for as long as it remains pleasurable."
+
+The slate brightened.
+
+**DEFINE RESPONSE PRIORITY.**
+
+Zephira looked down the length of herself. The Pearl rested silently between open thighs. Red rope gathered her breasts, waist and hips into a pattern she had made because she liked the way it felt and the way it looked. Her hands remained free upon the frame for one final moment.
+
+"Make me come," she said. "Then keep doing it while I still enjoy it. Longer rather than harder."
+
+**CONFIRMED.**
+
+**THE SUBJECT RETAINS THE ESTABLISHED WITHDRAWAL COMMAND. ORDINARY REQUESTS FOR EARLY RELEASE WILL NOT ALTER THE TERM.**
+
+"I know."
+
+**SUNSET RELEASE ONLY.**
+
+Zephira smiled.
+
+"Accepted."
+
+The frame closed.
+
+Her right wrist settled first. A padded leather cuff folded around it and drew outward until the rigid side arm took the line. The left followed. Zephira pulled both hands toward her body. Her elbows pressed into their cushions; the cuffs did not move.
+
+Thigh connections tightened next. The decorative bands she had laid by hand became structural, each joined to a side ring by a short dark-red line. Her knees opened another few inches, enough to display the Pearl and the wetness already shining beneath it. Ankle cuffs closed above her narrow heels and fastened to the lower arms. The hip band settled firmly across the front of the harness. Shoulder straps docked behind her.
+
+The last slack disappeared.
+
+Zephira tested the frame.
+
+Her shoulders tightened beneath warm skin. Trained arms drew against the cuffs. Strong thighs flexed, showing muscle within their soft length, but the independent anchors converted strength into small changes of tension across rope and nothing else. When she tried to twist, the hip band held her to the central plate while the shoulder straps opposed the turn. When she lifted one knee, its bolster accepted the effort and the thigh line returned it to the same open angle.
+
+The Appraising Glass floated above her.
+
+It showed a magnificent Amazon arranged for a day of complete uselessness: golden hair coiled above her head, sea-green eyes bright with anticipation, full breasts framed in red and lifted by the spread of her arms, waist held against the plate, long legs opened and separately secured from thigh to ankle. Her fingers opened and closed beside her shoulders. Her bare feet flexed at the distant lower anchors, high arches tightening while every toe curled against empty air.
+
+She looked comfortable.
+
+She looked beautiful.
+
+She could do absolutely nothing about either condition until sunset.
+
+Zephira pulled harder once, purely for the pleasure of finding no weakness.
+
+"Release."
+
+Amber words appeared above her.
+
+**SUNSET HAS NOT OCCURRED.**
+
+"Checking."
+
+**SUNSET HAS NOT OCCURRED.**
+
+"Still lacking conversational range."
+
+The message vanished.
+
+Beyond the high opening, the sky became pearl-gray.
+
+The first sunlight entered as a narrow line along the eastern column. It descended over faded reeds, reached the blue mosaic and touched the responsive plate.
+
+The Rose upon Zephira's abdomen turned translucent.
+
+The Pearl warmed.
+
+Its first motion was barely a vibration. A low pulse spread through the silver where it rested close against her, intimate enough to distinguish from the pressure of the harness and slow enough that she could follow each rise. Zephira exhaled. Red rope moved against the lower curves of her breasts. The pulse faded before her body decided what to do with it.
+
+Another followed.
+
+It lasted longer.
+
+Zephira's hips attempted to tilt. The plate allowed only the smallest change, holding the Pearl in exact relation while the line across her hips grew firm. Her thighs tightened. One ankle drew against its cuff, making the tendons along the top of her foot briefly visible in the Glass.
+
+The third pulse reached deeper.
+
+Warmth gathered beneath her stomach and spread outward through the open bowl of her pelvis. It did not resemble the aggressive collection the curriculum used after a spell or the bright, efficient stimulation of a task reward. The Pearl seemed in no hurry. It found the point where her breathing changed and remained there, increasing by such small degrees that each one felt like her own body becoming more attentive.
+
+Zephira watched herself respond.
+
+Her nipples tightened between the red lines. Color warmed her throat and crossed the upper fullness of her breasts. The muscles beneath her abdomen shifted whenever she tried to follow the Pearl upward. Her sex glistened more openly around the silver, visible in the elevated reflection because she had arranged her legs to make concealment impossible.
+
+No one else would see.
+
+That privacy did not make the display less real. It made every part of it hers.
+
+The stimulation grew broad, then precise. A steady pressure held beneath quicker pulses. Zephira closed her eyes and felt rope rather than watching it: the frame around each breast, the crossing over her ribs, the lines at her hips and thighs settling a little deeper whenever her body strained. Her hands tightened into fists. Her heels pressed down, calves flexing against cushions which gave just enough to let strength become sensation without becoming movement.
+
+Pleasure rose cleanly.
+
+The Rose did not flatten it. Nothing vanished at the threshold. Zephira felt the approach gather inside her, felt it become inevitable and then felt herself cross into an orgasm which belonged to her from beginning to end.
+
+Her back arched as far as the hip and shoulder anchors permitted. Breasts lifted hard inside the harness. The Pearl held exactly where every contraction wanted it, sustaining rather than chasing. Pleasure moved through her in deep rhythmic waves, tightening her abdomen, opening her fingers and curling every toe upon the frame.
+
+It remained.
+
+The realization became part of the orgasm. Nothing pink swept across her nerves and stole the satisfaction. Each contraction carried its own release, and beneath it came a slow return of something the Rose had stored from earlier tasks: not all at once, not enough to overwhelm, but a warm additional depth which made the next wave fuller than the first.
+
+Zephira cried out.
+
+The sound rose into the empty bath and returned from the stone as a softer version of itself.
+
+The Pearl eased.
+
+Her body continued for several breaths after the vibration became a hum. Thighs trembled within their separate lines. Her chest rose against the red rope. When the last contraction loosened, satisfaction spread through her with such unfamiliar completeness that she began to laugh.
+
+The Appraising Glass displayed a factual caption.
+
+**SUBJECT CONTINUES TO FIND THE PRACTICUM PLEASURABLE.**
+
+"Excellent research," Zephira said breathlessly.
+
+The Pearl remained warm against her.
+
+It did not begin the next ascent immediately. Soft pressure continued while her body settled, no longer enough to demand an answer but too intimate to let the restraints become background. Zephira felt her own pulse against the silver. She felt the shallow compression of rope around breasts and thighs, the cuffs holding four capable limbs where she had placed them and the satisfying impossibility of reaching the source of what had just happened.
+
+She drank from the waiting tube.
+
+The silver arm brought it to her lips. The Pearl lowered itself another fraction while she swallowed, then returned to its patient hum when the tube withdrew.
+
+"Very civilized."
+
+**SUNSET HAS NOT OCCURRED.**
+
+"I did not ask."
+
+The machine had apparently learned one joke and intended to preserve it.
+
+Morning unfolded through light.
+
+Sun moved from the eastern column onto the basin floor, brightening blue fish one after another. The Appraising Glass adjusted to keep glare from Zephira's eyes. Cool air warmed gradually against her skin. Wherever perspiration gathered—beneath a breast, along the hollow beside her hip, behind one knee—the room's old channels carried just enough breeze to make the moisture newly legible.
+
+The Pearl learned her in stages.
+
+After the first orgasm, direct pressure made Zephira oversensitive. It shifted to a wider, slower vibration which moved around the point rather than insisting upon it. When her breathing deepened again, the pulses narrowed. When she pulled at her wrists, the harness transmitted that effort through the side lines and the Pearl answered with one firmer stroke.
+
+Zephira pulled deliberately.
+
+The response went through her at once.
+
+"Oh, that is unfair."
+
+**THE SUBJECT SELECTED RESPONSIVE STIMULATION.**
+
+"I was criticizing my own excellent decision."
+
+She tested it again.
+
+Her arms tightened. Red rope pressed more firmly beneath both breasts. The Pearl surged. Pleasure darted from clitoris to stomach so quickly that her legs tried to close and found separate thigh anchors waiting.
+
+The sight of the attempt in the Glass excited her almost as much as the response itself. Long thighs drew inward without changing their open angle. Calves hardened. Her feet turned against distant cuffs, soles briefly visible from the elevated view. The body looked powerful because it was powerful. The frame did not deny that strength; it made strength gloriously irrelevant.
+
+Zephira relaxed.
+
+The ropes softened with her. The Pearl softened too, returning to a low caress until anticipation became stronger than recovery.
+
+Her next orgasm built more slowly.
+
+She watched most of it arrive. The Glass showed her nipples darkening, breasts moving within the harness, wetness shining around the Pearl and her crooked grin disappearing each time pleasure interrupted it. She liked the honesty of the view. There was no audience to impress and no task requiring a posture beyond the one she had written. She could look beautiful because she enjoyed looking beautiful. She could look helpless because helplessness made warmth collect between her open thighs.
+
+When the orgasm came, she kept her eyes open.
+
+Her reflection lost composure before she did. Sea-green eyes widened. Her mouth opened. Every red line became more distinct as her body pressed outward against it. The Pearl drew the climax long, easing whenever intensity threatened to sharpen past pleasure and returning as soon as she could accept more. The result did not strike once. It rolled through her, loosened and returned, each wave carrying satisfaction rather than postponing it.
+
+Zephira stopped watching sometime in the middle.
+
+She came down laughing again, although the laughter broke into a helpless sound when one final pulse found her before the Pearl relented.
+
+**SUBJECT CONTINUES TO FIND THE PRACTICUM PLEASURABLE.**
+
+"I may have overspecified that condition."
+
+The drinking tube approached.
+
+She accepted it with dignity.
+
+By the time Zephira asked how long had passed, she felt as though the entire morning must have gone.
+
+**FORTY-SEVEN MINUTES SINCE SUNRISE.**
+
+Zephira stared upward.
+
+The high opening showed an innocent blue sky.
+
+"That is incorrect."
+
+**FORTY-SEVEN MINUTES AND TWELVE SECONDS.**
+
+"I object to the seconds."
+
+The slate reduced itself to:
+
+**ELEVEN HOURS, FOUR MINUTES UNTIL SUNSET.**
+
+Zephira's body responded to the number with a warm tightening around the Pearl.
+
+The Appraising Glass added:
+
+**SUBJECT CONTINUES—**
+
+"Yes."
+
+The caption vanished.
+
+The next hours ceased to divide cleanly.
+
+The practicum did not keep Zephira at the edge without relief. That would have turned generosity into another kind of denial. It brought her upward, let her cross, let the pleasure remain and gave her body room to settle before beginning again. Sometimes the space between orgasms lasted long enough for her to notice the sun had moved. Sometimes one release loosened only far enough to reveal another rising beneath it.
+
+The Pearl never used exactly the same path twice.
+
+It learned that a broad vibration made her arch slowly, pressing full breasts upward into their red frame. A quick centered pulse made her thighs jerk against the side anchors and her feet point hard enough to tighten every line from calf to toe. Holding steady through the first contractions made her voice drop low; easing and returning during the later ones made it rise.
+
+It also learned restraint.
+
+Pleasure deepened whenever Zephira tried to move and found herself unable. The wrist cuffs became more than objects around her arms. They were the fixed ends of every involuntary reach. The thigh lines became the reason each attempt to close her legs turned into pressure across hips and an even clearer display in the Glass. The band over her pelvis held her precisely where the Pearl required, denying the small retreat her body sometimes sought when sensation became exquisite.
+
+None of the restraints hurt. By noon, Zephira knew every one of them as distinctly as she knew the Pearl.
+
+Rope had warmed to her skin. Its gentle compression left softness gathered around her breasts, waist and thighs. The cushions beneath elbows and knees had shaped themselves to her without becoming so soft that she could gain leverage. Her ankles remained comfortably fixed. Her wrists could rotate a little inside their padded cuffs and accomplish nothing.
+
+The helplessness lasted through satisfaction.
+
+That was new.
+
+Usually orgasm ended a self-authored scene or arrived near enough to release that freedom followed before her body became quiet. Here, Zephira climaxed and remained exactly where she had arranged herself. She could not roll onto her side, gather her legs together or place a soothing hand between them. She had to receive the afterglow in the same open posture, held and displayed while the Pearl softened against her and the Glass showed how completely pleasure had altered her.
+
+The sight was sensual rather than humiliating.
+
+Her hair had begun escaping around her face. Perspiration shone between her breasts and along the firm plane of her stomach. Her lips looked softer from repeated cries and laughter. The strength in her body had not disappeared, but satisfaction had taken urgency out of it. Her hands rested open. Her feet flexed lazily inside their cuffs. She looked less defeated than lavishly occupied.
+
+Zephira liked that too.
+
+Near midday, the Pearl went still.
+
+The sudden absence woke her from a warm, drifting half-sleep. She pulled once at both wrists.
+
+Nothing answered.
+
+"What happened?"
+
+**SENSITIVITY ABOVE PLEASURABLE RANGE. RECOVERY INTERVAL ACTIVE.**
+
+Zephira considered this. Her clitoris felt swollen and exquisitely tender beneath the motionless silver. The rest of her body remained loose, warm and deeply satisfied. Even the thought of direct vibration made her abdomen tighten with a response containing as much warning as interest.
+
+The machine was right.
+
+She disliked how reassuring that felt.
+
+"How long?"
+
+**UNTIL CONTINUATION BECOMES PLEASURABLE.**
+
+"That is extremely literal."
+
+**CONFIRMED.**
+
+The frame changed nothing else.
+
+Zephira lay beneath the bright square of noon and felt the day continue around her. Sun warmed one thigh. Air moved over the other. Her body remained inescapably open but no longer demanded release, and for a while the restraints themselves became the whole experience again.
+
+She flexed one hand. The cuff answered at the wrist, its lining warm and dry. She pressed her shoulders into the support and felt red lines draw beneath both breasts. She tightened one calf, pointed her foot and watched the Glass show the arch lengthening while the ankle remained fixed. Small movements traveled through the arrangement without changing it.
+
+The drinking tube brought water.
+
+Afterward the machine extended a second silver arm from beneath the frame. A date rested upon its tiny tray.
+
+Zephira looked at it.
+
+"You said nothing about food."
+
+**THE SUBJECT PREPARED FOOD INEFFECTIVELY.**
+
+The Appraising Glass replayed, locally and without record, the morning bread falling past her nose.
+
+"I will break you at sunset."
+
+The arm placed the date neatly between her lips.
+
+She ate it.
+
+A second followed, then a piece of cheese and another date. The machine waited for each swallow. It possessed no personality, no hands and apparently no respect for threats issued while being fed.
+
+Zephira began laughing before the last date reached her. The chest harness moved with it. Rope tightened beneath her breasts. The Pearl, still motionless, pressed against the laughter from below.
+
+Sensitivity had returned to pleasure without asking permission.
+
+The first renewed pulse was so gentle she almost mistook it for her own heartbeat.
+
+Zephira stopped laughing.
+
+"Longer," she whispered. "Not harder."
+
+The Pearl obeyed.
+
+It drew one low note through her and held it. The sensation did not climb by force. It widened, warmed and accumulated. Every breath made more room for it. Her body had already been satisfied many times; instead of dulling, that fullness made the new pleasure feel less urgent and more encompassing, as though the whole day had become one continuous caress interrupted only by peaks too distinct to mistake.
+
+The frame warmed beneath her.
+
+Pressure shifted almost imperceptibly through the posture plate, lifting the pelvis by less than an inch and settling the Pearl more closely without changing any anchor. The red lines at Zephira's hips tightened. Her knees remained supported, thighs held in the same open angle. Nothing strained. Nothing escaped.
+
+The orgasm approached so gradually that she recognized it first in the Glass.
+
+Her toes had curled. Her fingers were drawing against the cuffs. A flush deepened over her breasts. The crooked amusement had left her mouth, replaced by an expression so openly absorbed that Zephira would once have looked away from it.
+
+She watched instead.
+
+The Pearl continued the same impossible, patient note.
+
+Pleasure gathered low, spread through her pelvis and rose beneath the muscles of her stomach. The Rose opened a little farther. Stored warmth joined without changing the pace, making each breath feel fuller than the one before. Zephira hovered there, not denied and not rushed, certain she would be allowed to come whenever her body completed the ascent.
+
+When it did, the first contraction felt almost quiet.
+
+The next reached deeper.
+
+Her hips pulled against the central band. The frame held. Her breasts lifted within the harness as breath caught and released. Pleasure rolled outward through thighs, stomach and chest, then returned to the center with another slow contraction. The Pearl eased just enough to keep the sensation from sharpening. As soon as the wave softened, it restored the same broad pressure and drew another from her.
+
+Zephira came for a long time.
+
+There was no need to struggle toward it. The struggle had ended at acceptance before sunrise. Her only work was to inhabit what she had ordered: the red rope, the open legs, the four useless limbs and the magical restraint patiently extending pleasure for as long as pleasure remained welcome.
+
+Her eyes closed.
+
+The empty bath filled with her breathing and the faint sounds she stopped trying to restrain. Each wave left satisfaction behind. Each return found a body more relaxed and, impossibly, still receptive. Her hands opened. The arch went out of her feet. Even the muscles in her thighs gave up their argument with the side lines and rested heavily upon the cushions.
+
+Eventually the Pearl became still.
+
+The orgasm did not end at once. It loosened through smaller contractions, long warmth and a final deep shiver which moved from pelvis to shoulders. Zephira lay beneath it until she could feel the room again.
+
+Sunlight had crossed the basin.
+
+The Appraising Glass showed her from above. Red rope. Golden hair. Flushed skin. A woman held open and smiling without enough energy to make the smile crooked.
+
+**SUBJECT CONTINUES TO FIND THE PRACTICUM PLEASURABLE.**
+
+Zephira considered the sentence with profound seriousness.
+
+"Yes."
+
+The afternoon became softer.
+
+The machine no longer treated every return of arousal as a reason to climb immediately. It let sensation spread through rest. The Pearl traced small rhythms while the frame kept Zephira warm, hydrated and comfortably helpless. Some orgasms arrived as brief bright releases which curled her toes and left laughter behind. Others gathered for so long that she forgot she was approaching one until her body tightened inside the ropes and pleasure opened beneath her again.
+
+She stopped asking the time.
+
+Light told enough. It withdrew from the basin fish and climbed the western column. Shadows lengthened beneath the frame. The air cooled against moisture drying upon Zephira's throat, breasts and inner thighs.
+
+At some point she slept.
+
+She woke because the Pearl had begun stroking sensation through her in a pattern her body recognized before thought returned. Her wrists remained secured beside her shoulders. Ankles remained at the lower anchors. The frame had released nothing while she slept, and discovering herself still entirely bound sent a fresh current of pleasure through the drowsiness.
+
+"Good morning," Zephira murmured.
+
+**LATE AFTERNOON.**
+
+"You are poor company."
+
+**THE PRACTICUM IS SELF-DIRECTED.**
+
+"Then I am excellent company."
+
+The Pearl strengthened in a way which might have been agreement if the artifact had possessed an opinion.
+
+Zephira's body no longer reacted with morning's sharpness. It had become languid, saturated and deeply easy to please. A small change in pressure could make warmth spread across her abdomen. The drag of rope beneath one breast became sensual because everything had become sensual. When she pulled weakly at the right cuff, the responsive pulse which followed moved through her slowly enough to make her sigh rather than gasp.
+
+She felt used only in the literal sense: every part of the day had been occupied by the purpose she chose for it. No quest waited beyond the doorway. No contract needed completion. No companion depended upon her keeping watch. She had arranged a place where strength accomplished nothing and pleasure accomplished nothing either. It did not earn points, darken petals or improve a skill the curriculum could grade.
+
+It simply felt good.
+
+The silliness of that luxury pleased her almost as much as the restraint.
+
+Zephira had crossed deserts for chipped gems. She had fought demons for weapons sold ten minutes later because the grip felt wrong. She had spent an entire night naked in Lut Gholein because wine suggested that a market route might become educational if attempted with her hands bound.
+
+This was, by comparison, a remarkably sensible use of time.
+
+The sky beyond the ceiling opening softened toward gold.
+
+A final notice appeared.
+
+**ONE HOUR UNTIL SUNSET.**
+
+Zephira felt disappointment, then surprise at the disappointment. Her body was profoundly satisfied. She did not need another orgasm. Wanting the hour was different from needing what it contained. She wanted to remain inside the completed decision, held exactly where morning Zephira had placed her, while evening approached without requiring anything else.
+
+The Pearl became quiet enough that she could have rested until release.
+
+Zephira looked at the Appraising Glass.
+
+The woman reflected there had changed across the day. Blonde hair had escaped in damp curls around her face and neck. Rope impressions deepened harmlessly where red lines met softened skin. Her breasts rested heavily inside the harness, nipples still dark and sensitive. Her abdomen showed the translucent Rose above a pelvis which no longer strained against its band. Long legs remained open, strong and useless, each ending in a relaxed foot at a fixed anchor.
+
+She had never looked more thoroughly pleased.
+
+"One more," Zephira said.
+
+The slate asked:
+
+**PREFERRED INTENSITY?**
+
+She considered morning's sharp pleasure, noon's long surrender and the easy rolling releases of afternoon.
+
+"All the time you have left," she said. "Keep it pleasant."
+
+The Pearl warmed.
+
+The final ascent occupied the sunset.
+
+It began as a low vibration which seemed to enter through every place the frame touched her. Wrists, shoulders, the red harness around breasts and ribs, the firm band at hips, the lines holding thighs apart, the padded cuffs at her ankles—all became edges around a warmth slowly filling the body between them.
+
+Zephira did not pull against the restraint this time.
+
+She let it hold her.
+
+The Pearl increased by patient degrees. Satisfaction from the day remained beneath the new pleasure instead of being replaced by it. She could feel how thoroughly she had already come: the tenderness made sweet by careful pressure, the loose weight in her limbs, the calm which survived even as arousal rose again.
+
+Gold light descended the western column.
+
+The Rose became almost transparent. A final measured portion of stored pleasure entered the ascent, not as a separate blow but as depth. Zephira inhaled. Rope tightened around her breasts. Her nipples pressed outward between red crossings. The posture plate kept her pelvis still while everything inside it gathered.
+
+Pleasure reached the point where harder would have ruined it.
+
+The Pearl did not become harder.
+
+It became longer.
+
+Zephira came as the sun touched the edge of the high opening.
+
+The first wave drew every limb against its cuff. The second took strength out of them. By the third, she lay entirely supported, body contracting around sensation it had no need to chase and no means to avoid. Her voice broke upon a laugh, became a moan and softened into breath while the orgasm continued.
+
+The machine followed her exact instruction. Whenever the crest sharpened toward too much, it eased. Whenever pleasure remained, it sustained. The result stretched without turning cruel: a sequence of deep contractions and warm releases, each allowed to complete, each flowing into the next before the fullness between them could disappear.
+
+Zephira watched the last sunlight touch her raised breast, the red rope across her stomach and the pale Rose below it.
+
+Then her eyes closed and the day became sensation.
+
+She felt the Pearl steady against her. The frame beneath her. Rope around the softness of her body and fixed metal beyond every attempted movement. She felt each orgasm remain where it belonged, not taken, not banked for later, not transformed into points or power or a permanent response.
+
+Pleasure for no purpose beyond Zephira's pleasure.
+
+The final wave moved through her slowly enough to feel endless and ended gently enough that she did not recognize its end until quiet had already arrived.
+
+The Pearl became still.
+
+The last line of sunlight left the column.
+
+**SUNSET. TERM FULFILLED.**
+
+The frame released her in order.
+
+Shoulder straps detached first, though the wrist cuffs kept both arms supported and still. The lines at her thighs lengthened. Ankle anchors opened, allowing each leg to settle inward only as far as the cushions guided it. The hip band loosened. Her wrists released last, one at a time, after the frame had confirmed that she was not going to roll from the support.
+
+Zephira did not move.
+
+Freedom returned everywhere and found no urgent use.
+
+The Resonant Pearl withdrew from its lower harness and rested harmlessly against her thigh. Red rope remained around breasts, waist and hips, but every structural connection had opened. She could lift a hand and undo it whenever she wished.
+
+For several minutes, she did not wish.
+
+She lay in the darkening bath while satisfaction filled the places where desire ordinarily began. Her body felt warm, tender and wonderfully heavy. Each breath moved the rope gently around her breasts without becoming a new invitation. Her thighs could close. They rested apart because closing them required effort and there was no reason to hurry.
+
+The Appraising Glass showed no caption.
+
+It showed only Zephira.
+
+She lifted one hand at last and placed it over the pale Rose upon her abdomen. No petal had darkened. Nothing had been forfeited. The curriculum had offered satisfaction, and she had accepted so comprehensively that the thought of another orgasm produced appreciation rather than appetite.
+
+Her crooked grin returned.
+
+"Pleasurable," she said.
+
+The Glass folded itself away.
+
+Warm water entered the old basin channels. Zephira unmade the harness while it filled, drawing dark-red rope from beneath breasts, ribs and hips. Each released turn exposed a shallow pink impression. She massaged her wrists, stretched both arms overhead and watched the strength return to her legs without immediately asking it to carry her.
+
+Bathing took a long time.
+
+So did eating.
+
+The bread had gone slightly hard. The cheese had gone slightly soft. Atma's dates remained perfect, which Zephira regarded as evidence that dates had been designed for adventurers with poor schedules.
+
+She slept beside the empty frame and returned to Lut Gholein late the following morning.
+
+Atma was serving lunch when Zephira descended the tavern stairs after leaving her equipment above. The walk from the waypoint had restored most of her balance, although not enough to make the final step entirely convincing.
+
+Atma placed grilled fish, bread and a cup of watered wine before her.
+
+"Productive expedition?"
+
+Zephira sat with care. "Nothing of commercial value."
+
+"Danger?"
+
+"Subtle."
+
+Atma looked at her face, the loose fall of blonde hair and the profound lack of urgency in every movement.
+
+"Will you be taking today off?"
+
+"I took yesterday off."
+
+"Then today you may recover from your leisure."
+
+Zephira ate everything upon the plate.
+
+That evening she carried the cleaned rope to her room, coiled it neatly and set the Resonant Pearl beside the posture clasp. Usually the sight of the artifacts stirred a quick private warmth: the remembered pressure of a cuff, the promise of strength made useless, the next arrangement waiting to be discovered.
+
+Tonight they remained beautiful and entirely unnecessary.
+
+Zephira climbed into bed. Her body settled into the mattress with the loose completeness of something used exactly as intended. No muted ache waited beneath the quiet. No unfinished ascent asked what she might do with her hands.
+
+She was not denied.
+
+She was not desperate.
+
+She was satisfied.
+
+For once, tomorrow could wait until tomorrow.
