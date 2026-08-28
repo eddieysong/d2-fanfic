@@ -182,7 +182,7 @@ const illustrations = {
     art("Zephira_03_Private_Experiments.jpg", "Zephira crosses the sleeping Lut Gholein market in enchanted hobble chains", "A private experiment ventures briefly into the sleeping city.", 0.78),
   ],
   "zephira-04-found-by-chance": [
-    art("Zephira_04_Found_By_Chance.jpg", "Cordelia and Emily discover Zephira's forward-leaning rope predicament in the Lost City baths", "Found by chance, released first, and invited back into the scene by Zephira herself.", 0.46),
+    art("Zephira_04_Found_By_Chance.jpg", "Cordelia and Emily discover Zephira's forward-leaning rope predicament in the Lost City baths", "Found by chance, released first, then rebound by invitation and left to enjoy their improvements in private.", 0.46),
   ],
   "zephira-05-four-hours-four-weeks": [
     art("Zephira_05_Four_Hours_Four_Weeks.jpg", "Zephira endures the mistaken four-week setting inside a cliffside shrine", "Four hours and four weeks differ by only one unfortunate selector mark.", 0.52),

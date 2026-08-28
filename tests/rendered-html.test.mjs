@@ -119,9 +119,11 @@ test("renders Zephira's complete arc after the Grail adventures", async () => {
   assert.equal(discoveryResponse.status, 200);
   const discoveryHtml = await discoveryResponse.text();
   assert.match(discoveryHtml, /Let(?:'|’|&#x27;)s get you out of that/);
-  assert.match(discoveryHtml, /Would you like to keep playing—with us/);
+  assert.match(discoveryHtml, /Would you like us to put it back/);
+  assert.match(discoveryHtml, /then leave you to the term/);
   assert.match(discoveryHtml, /Resistance and surrender had both become active instructions/);
-  assert.match(discoveryHtml, /Zephira came again/);
+  assert.match(discoveryHtml, /had not touched her anywhere the bindings had not required/);
+  assert.match(discoveryHtml, /She came again later/);
 });
 
 test("renders the complete Black Rose arc before the later archives", async () => {
