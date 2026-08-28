@@ -118,9 +118,13 @@ test("renders Zephira's complete arc after the Grail adventures", async () => {
   const discoveryResponse = await render("/read/zephira-04-found-by-chance");
   assert.equal(discoveryResponse.status, 200);
   const discoveryHtml = await discoveryResponse.text();
+  assert.match(discoveryHtml, /She likes being watched/);
+  assert.match(discoveryHtml, /Caught\. She likes being caught/);
+  assert.match(discoveryHtml, /Let us see it/);
   assert.match(discoveryHtml, /Let(?:'|’|&#x27;)s get you out of that/);
-  assert.match(discoveryHtml, /Would you like us to put it back/);
-  assert.match(discoveryHtml, /then leave you to the term/);
+  assert.match(discoveryHtml, /Put me back/);
+  assert.match(discoveryHtml, /do not be afraid to make me suffer a little/i);
+  assert.match(discoveryHtml, /Then you leave me to it/);
   assert.match(discoveryHtml, /Nothing begins until we have crossed the outer threshold/);
   assert.match(discoveryHtml, /had not touched her anywhere the bindings had not required/);
   assert.match(discoveryHtml, /She came again later/);
