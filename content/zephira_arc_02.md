@@ -348,15 +348,11 @@ Two narrow silver relays unfolded from the posture plate and fitted themselves a
 
 The new geometry remained traceable. Pulling at her wrists would divide its answer: half returned as upward pressure through the breast harness, half as a firmer pulse from the Pearl. Yielding would reverse the sequence, lowering the wrist line a fraction while bringing the Pearl closer. Any attempt to close her thighs would tilt the hip support forward without changing the fixed width of her stance.
 
-Resistance and surrender had both become active instructions.
+Resistance and surrender had both been written into the instructions.
 
 "That seems excessive," Cordelia said.
 
 "She asked what I would improve."
-
-Zephira tested her wrists.
-
-The relays tightened beneath both breasts. The posture plate rolled her pelvis forward by less than an inch, and the Pearl answered with a bright, centered vibration which turned her muffled objection into a gasp.
 
 "Excessive," Cordelia repeated, sounding much less critical.
 
@@ -378,11 +374,13 @@ Emily examined the circuit. "And the Pearl?"
 
 "It was not praise."
 
-Cordelia drew the final spell through the wrist return. A warm current passed beneath Zephira's breasts when she strained; as she relaxed, coolness slipped along the same fibers and the Pearl changed from a narrow pulse to a deep surrounding hum.
+Cordelia drew the final spell through the wrist return. Amber and blue flickered once at every crossing, then disappeared into the dark-red fibers.
 
-Zephira inhaled around the gag.
+Emily sealed both additions behind one final condition. "Nothing begins until we have crossed the outer threshold."
 
-The Glass showed her what she had asked them to create: red rope settling into sun-bronzed softness, silver relays bright beneath her hanging breasts, powerful limbs converted into displayed lines and two colors of magic moving through the pattern like slow light beneath water.
+The enchantments remained dormant. Zephira could feel only the rope, the fixed posture and the small cool weight of the quiet Pearl.
+
+The Glass showed her what she had asked them to create: red rope settling into sun-bronzed softness, silver relays bright beneath her hanging breasts and powerful limbs converted into displayed lines. Somewhere inside the pattern, two colors of magic waited out of sight.
 
 "Lovely," Emily said.
 
@@ -390,9 +388,7 @@ The word reached differently now.
 
 "And still magnificently helpless," Cordelia added.
 
-Zephira pulled at her wrists in answer.
-
-Amber warmth tightened beneath both breasts. The Pearl flashed brightly against her clitoris. Her long legs tried to close and found independent anchors waiting; the attempt rolled the hip support forward and made the silver press closer.
+Zephira pulled at her wrists in answer. Nothing responded yet. Even the silence had become part of their design.
 
 Her muffled complaint followed both women toward the doorway.
 

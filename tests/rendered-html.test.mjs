@@ -121,7 +121,7 @@ test("renders Zephira's complete arc after the Grail adventures", async () => {
   assert.match(discoveryHtml, /Let(?:'|’|&#x27;)s get you out of that/);
   assert.match(discoveryHtml, /Would you like us to put it back/);
   assert.match(discoveryHtml, /then leave you to the term/);
-  assert.match(discoveryHtml, /Resistance and surrender had both become active instructions/);
+  assert.match(discoveryHtml, /Nothing begins until we have crossed the outer threshold/);
   assert.match(discoveryHtml, /had not touched her anywhere the bindings had not required/);
   assert.match(discoveryHtml, /She came again later/);
 });
