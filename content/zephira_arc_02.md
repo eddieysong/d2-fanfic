@@ -36,73 +36,31 @@ Zephira's first impulse was to call out. Courteous Silence converted the attempt
 
 The voices stopped.
 
-Nobody opened the door.
-
-"Occupied," said the lighter voice.
-
-"You sensed a person?"
-
-"No. I heard one. The artifact is mine; the privacy is not."
-
-Zephira's embarrassment did something inconveniently warm inside her.
-
 A staff knocked three times against the outer stone.
 
-Zephira tried to answer. The gag permitted urgency, tone and almost no language.
+Zephira tried to say *occupied*. Courteous Silence preserved the indignation and discarded the useful part.
 
-The lower voice answered carefully. "We hear you. I am Cordelia, a sorceress. The woman with me is Emily Vohl. We followed an artifact signature and did not know anyone was here."
+"Someone is in there," the lower voice said.
 
-The second woman added at once, still from beyond the closed door, "Enchantress, scholar and current regrettable owner of no permanent body. I have not entered your chamber, and I will not unless invited."
+"Someone wearing my gag," said the other.
 
-Zephira forgot the discomfort in her shoulders.
-
-Emily.
-
-Drognan's damaged record had named a woman where the surviving Horadric histories insisted upon a man. Zephira had crossed the desert following the awakened signature upon her first restraint and found this chamber at the end of its faint golden thread. She had expected another clever piece of old magic. She had not expected the woman whose name glowed beneath the clasp to announce herself from the courtyard like a guest calling at a respectable house.
-
-The silver plate adjusted again. Its narrow inner support moved with quiet precision across the inside of Zephira's thigh. The Pearl caught the movement and hummed more firmly. She inhaled through her nose, waited for speech to become possible and accomplished only another aggravated murmur.
-
-"The Courteous Silence," Emily said. "I wondered where I left that."
-
-Cordelia tapped her staff once against the stone. "Let us use one sound for yes and two for no. Are you injured?"
-
-Zephira answered twice.
-
-"Were you restrained voluntarily?"
-
-One decisive sound.
-
-"Would you like us to enter far enough to see you?"
-
-That possibility should have produced immediate relief.
-
-Zephira imagined the footsteps withdrawing, the courtyard returning to silence and the next several hours proceeding exactly as designed. The rope would hold her. The responsive plate would continue its slow alterations. At moonrise the cuffs would open, and no living person would ever know how strikingly the dark-red pattern suited her.
-
-Instead she felt a small, sharp disappointment.
-
-It annoyed her enough to make the decision easier. After a long silence, Zephira made one clear sound around the gag.
-
-"Only to the threshold," Cordelia said. "If that is wrong, answer twice."
-
-Zephira remained silent.
-
-"No floating through walls," Emily added. "I have been learning manners."
+"That sentence has not improved the situation."
 
 The door opened.
 
-The sorceress entered only far enough to become visible and stopped with one hand upon the stone. Zephira recognized her before the black hair, amber-brown eyes and tall bronze grace assembled into the woman from half the stories in Sanctuary.
+The sorceress entered first and stopped so abruptly that the ferrule of her staff struck stone. Zephira recognized her before black hair, amber-brown eyes and tall bronze grace assembled into the woman from half the stories in Sanctuary.
 
 Cordelia wore ordinary traveling clothes: blue tunic, fitted trousers, soft leather boots and a light mantle against the desert dust. No silver joined her nipples. No bracelets enclosed her wrists; no anklets transformed her boots into absurd heels. The Beneficent jewelry was plainly dismissed. A staff rested in her other hand, and the Horadric Cube hung at her hip with the battered familiarity of something carried into too many impossible places.
 
-Emily appeared beside her.
+Emily Vohl appeared beside her.
 
-The ghost was a slender blonde woman in a scholar's fitted coat, short dress and stockings, her pale braid drifting over one shoulder without regard for gravity. She remained precisely at the threshold. Curiosity made her blue eyes luminous, but she did not lean through the wall, circle the apparatus or pretend incorporeality exempted her from manners.
+The ghost was a slender blonde woman in a scholar's fitted coat, short dress and stockings, her pale braid drifting over one shoulder without regard for gravity. Curiosity made her blue eyes luminous. Surprise made the rest of her perfectly still.
 
 Zephira had prepared herself to be seen by nobody. Being seen by two women who understood exactly what they were looking at was markedly worse.
 
-Recognition flickered across Cordelia's face. "Zephira? Atma described you."
+Recognition flickered across Cordelia's face. "Zephira."
 
-Zephira nodded once. She would ask later exactly what Atma had considered descriptive.
+Atma had evidently described her. Zephira resolved to discover later how much of the present arrangement the description had somehow anticipated.
 
 The harness folded her above the cracked mosaic where blue fish had once surrounded a square bathing pool. Her feet stood far apart upon opposite edges, bare toes gripping uselessly whenever the tension changed. Her long legs rose to hips held high by a dark-red band. From there her torso sloped forward, wrists bound palm to palm behind her and pulled upward until her arms governed the angle of her shoulders. Crossing ropes framed full hanging breasts, settled slightly into their softness and narrowed around her firm waist.
 
@@ -112,25 +70,21 @@ Her heavy golden-blonde braid lay over one shoulder. Loose strands clung to her 
 
 Emily's gaze went first to the glowing three-loop signature upon the curved plate, then to the hovering Glass, the gag and the small silver device held close by the lower harness.
 
-"You awakened the entire bath suite," she breathed. "The Appraising Glass, the Resonant Pearl and Courteous Silence. I had wondered where I left those."
+"You awakened the entire bath suite," she breathed. "The Appraising Glass, the Resonant Pearl and Courteous Silence. I wondered where I left those."
 
 Zephira lifted one eyebrow. It was all the introduction presently available to her.
 
-Cordelia's attention remained upon Zephira's face. "We established that you are not injured. Do you want the restraints removed?"
+Emily moved nearer to the plate without approaching Zephira herself. Horadric characters brightened around its edge as the maker's signature recognized her. The ghost read them in a glance.
 
-The question mattered more than Zephira expected. Nothing in Cordelia's tone implied that the only reasonable answer was yes. She had not stepped forward, reached for the rope or allowed concern to become authority.
+"Owner-selected celestial term," she said. "Moonrise. No distress flare. The rope pattern was laid before the wrist circuit closed, and every final knot is exactly where its wearer could not reach it afterward."
 
-Zephira tested her shoulders. The harness creaked and settled closer across her ribs. Her wrists rose a fraction; both bare feet shifted against the mosaic, high arches tightening before she let her weight settle again. The Pearl responded to the struggle with an intimate rise in its hum.
+Cordelia looked from the provisions arranged beside Zephira's folded armor to the dark-red harness fitted with far too much care to be accidental.
 
-She shook her head.
+"No one did this to her," she said.
 
-"Do you expect the term to end by itself?"
+"No." Emily's delight returned by dangerous degrees. "She did."
 
-Zephira nodded and looked toward the roof opening where the declining sun measured the hours before moonrise.
-
-Emily followed her gaze. "Celestial term. It will release."
-
-Cordelia nodded and lowered her staff. Only after accepting the refusal did she look more closely at Zephira rather than merely assessing her.
+The Pearl strengthened beneath Zephira as humiliation warmed her from throat to breast.
 
 The Appraising Glass floated between them and turned one panel toward the visitors. It displayed Zephira's posture with an honesty no ordinary mirror could have managed: wrists secured high behind her, shoulders opened, breasts hanging heavily inside dark-red rope, long legs separated and every powerful line of the Amazon made useless by the geometry she had chosen.
 
@@ -148,219 +102,421 @@ Zephira shook her head automatically.
 
 The Glass showed the flush traveling down her throat. The Pearl hummed harder. Denial became difficult to maintain when three artifacts had been designed to present evidence.
 
-Cordelia glanced at the ropes, then back to her face. "Would you like us to stop commenting?"
+"She likes that," Emily said, scholarly excitement outrunning tact by several lengths.
 
-Zephira should have nodded.
+Zephira made a sound which should have damaged masonry.
 
-She did not.
+"The Glass agrees," Cordelia observed.
 
-Emily covered her mouth. The ghost had no physical breath to conceal, which made the gesture insulting.
+One panel enlarged the deepening color across Zephira's face and upper chest. Another showed the involuntary tightening of her thighs against the impossible width imposed by the floor anchors.
 
-The late sunlight moved across the chamber by inches. Rope had become warmer where it pressed Zephira's ribs and shoulders, cooler where the long line beneath her thigh crossed shadow. Every breath worked against structure. Every attempt to settle caused the plate to find a new distribution of weight. She had loved the sensations while alone. Under Cordelia's quiet attention, each became newly vivid.
+"Traitor," Zephira told it incomprehensibly.
 
-That should have made her ask them to go.
+Emily drifted around the edge of the basin, never crossing the rope or touching the woman inside it. "Dark red was an excellent choice. The original demonstration diagrams used ivory, which now seems cowardly. And that lower return—"
 
-Instead she found herself holding Cordelia's gaze whenever the mechanism moved.
+"Emily."
 
-"We came for the artifact," Cordelia said after a moment. "We did not come to take it from you. You found it, awakened it and are presently making a fairly conclusive claim."
+"I am admiring her work."
 
-Emily turned toward her. "It is technically—"
+"You are doing it aloud."
 
-"Hers."
+"She cannot possibly be unaware that she looks lovely. She brought a four-angle mirror."
 
-The ghost considered several centuries of intellectual property. "Hers. I reserve the right to admire the responsive posture."
+The accuracy of this made Zephira's face hotter.
 
-Zephira tried to say that the translation had called it something less incriminating. Courteous Silence turned the defense into a soft, wet complaint.
+Cordelia's attention moved slowly over the arrangement and returned to Zephira's eyes. Her interest was quieter than Emily's and therefore more dangerous.
 
-"Drognan translated it?" Emily guessed.
+"She looks strong enough to break most things in this room," Cordelia said. "Just not anything presently holding her."
 
-Zephira nodded.
+The responsive plate interpreted Zephira's answering pull as instruction. Her wrists rose another inch. Rope settled more firmly beneath the soft weight of her breasts, and the Pearl sent a bright pulse through the lower harness.
 
-"He remains alive?"
+Zephira gasped around Courteous Silence.
 
-Another nod.
+Both women stared.
 
-"And expensive?"
+Emily looked delighted. Cordelia looked as though she had just remembered several important facts too late.
 
-Zephira nodded with considerably greater force.
+"We have become slightly carried away," Cordelia said.
 
-The plate began another sequence.
+Zephira glared at her.
 
-The line beneath Zephira's hips drew inward while the rope raising her wrists eased by a finger. Her weight traveled gradually from the pull in her shoulders to the spread of her legs. A crossing beneath her breasts tightened and lifted their soft weight; the waist lattice drew her farther backward, making her body move inside a pattern that yielded nowhere useful.
+"More than slightly," Cordelia amended.
 
-She knew the cycle. She had chosen it. That did not make enduring it beneath two attentive gazes simpler.
+Emily touched two fingers to the maker's mark. "Let's get you out of that."
 
-Zephira tried to shift ahead of the pressure. The harness converted her effort into a slower rub along her inner thigh. Her shoulders flexed against the enclosure of her raised arms. Her planted toes curled.
+The suite obeyed her.
 
-"That," Emily said brightly, "is the responsive posture. Your lower modification transfers motion upward, and the Pearl is interpreting the resulting tension exactly as intended."
+The Pearl went still first. Its abrupt silence left Zephira aware of her own pulse against the silver. The line above her wrists lengthened; her bound arms descended slowly behind her while the plate redistributed weight into the support beneath her hips. Ankle anchors eased without releasing, keeping her stable as the strappado unfolded.
 
-Zephira felt the truth of this as rope drew more firmly around both breasts. Her breath caught.
+Cordelia set down her staff and moved forward only far enough to gather the loosened rope. Emily unwound the mechanism in the only order which would not drop its wearer onto the mosaic. The hip support broadened into a shallow sling before the wrist line descended, carrying Zephira's weight while her shoulders lowered. Courteous Silence opened. The padded ball withdrew, straps loosening from beneath Zephira's braid. Air entered her mouth cool and dry.
 
-Emily's scholarly delight contained no embarrassment on Zephira's behalf. Cordelia's interest was quieter and more dangerous. She understood what it meant to be held by one's own decision, and the recognition showed without becoming a claim.
+"You could have knocked," Zephira said hoarsely.
 
-Zephira looked toward the javelins resting upon her blanket. They might as well have been in Harrogath. The absurd distance pleased her. She had arranged the pack, eaten the dates, checked the chamber and surrendered every practical advantage because dark-red rope made her feel pretty and being unable to move made the prettiness feel undeniable.
+"We did," Cordelia said.
 
-She had never needed a better explanation.
+"You answered like an irritated camel," Emily added.
 
-Emily watched the Glass turn through its three views. "I made them because arrangements like this are lovely. You have improved the lower return, incidentally. The original had insufficient respect for thighs."
+"I was gagged."
 
-The answer reached Zephira with almost physical force.
+"Yes. I recognized it."
 
-Not training. Not research. Not combat flexibility. Lovely.
+The wrist cuffs opened. Zephira brought both arms down with a hiss as feeling changed through her shoulders. The torso anchors released next. Cordelia drew the dark-red rope away by its loose ends, touching knot and line rather than the skin beneath them. The support lowered Zephira backward onto the edge of the dry basin before the bands at her hips and thighs went slack.
 
-She looked down as far as the harness permitted. The dark rope divided her torso into deliberate shapes, made a display of the strength it denied and held both powerful legs uselessly apart. A narrow sunbeam caught one ankle cuff. Her toes flexed upon the blue mosaic.
+Only then did the ankle cuffs open.
 
-Zephira looked from that reflection to Cordelia. The sorceress had still not crossed the threshold.
+Zephira's knees attempted to fail with embarrassing punctuality. The plate anticipated them, widened beneath her hips and lowered her safely onto the blanket beside her provisions.
 
-"May I come closer?" Cordelia asked.
+Cordelia took the folded traveling cloak from Zephira's pack and set it within reach. Zephira pulled it around her own shoulders.
 
-Zephira nodded.
+Emily folded the Appraising Glass into one dark oval. The three merciless reflections disappeared.
 
-Cordelia left her staff by the door and approached slowly enough that every step remained revocable. She stopped beside Zephira, near enough for body heat to reach skin already warmed by rope, but touched nothing.
+"Water," Cordelia said, setting the skin beside the cloak.
 
-From here, Cordelia could see what the Glass had displayed without mercy: the slight yielding of Zephira's breasts around their supporting bands, the muscles drawn clear beneath her shoulders, the bound forearms held high behind her and the Resonant Pearl nestled in the lower harness. Her attention made Zephira feel more naked than nudity had managed alone.
+Zephira considered pointing out that it was her water. Her throat changed the priority. She lifted it with both hands and drank until the dryness left her mouth.
 
-"May I touch you?" Cordelia asked.
+Nobody spoke while she recovered.
 
-Zephira's first response was stillness.
+That silence did more to steady her than an apology would have. Cordelia sat upon the opposite edge of the basin, near enough to help and far enough that Zephira did not have to defend the cloak. Emily remained beside the dormant plate, pale braid drifting in air she did not disturb. Neither woman examined Zephira now that freedom had made examination easy.
 
-The request found every contradiction inside her at once. She had come here for solitude. She had arranged herself so no one could touch her, then made herself incapable of preventing it. Cordelia was offering that power back in the only form Zephira could presently use: one nod or one shake of the head.
+Strength returned in pieces. Her hands stopped tingling. The deep pull across her shoulders softened. Her legs remained heavy, but they belonged to her again; she could close them beneath the cloak, stretch one heel over the mosaic and choose where every part of her rested.
 
-The long pause became visible in the Glass. So did the way anticipation tightened her stomach and made her toes curl.
+The freedom felt almost indecent after the posture.
 
-Zephira nodded.
+Zephira drank again.
 
-Cordelia laid one hand against her shoulder first, warm and steady where the rope drew Zephira's arms upward. The contact was almost chaste. Its effect was not. Zephira had spent an hour feeling only her own motion returned by enchantment; another woman's palm entered the closed circuit like a startling new element.
+"Emily Vohl," she said at last.
 
-Cordelia followed one flat rope downward with two fingers, checking rather than disturbing its path across Zephira's ribs. At her waist the touch broadened into a palm, then continued to the firm curve of one hip. She did not reach between Zephira's thighs. She did not need to. The slow examination called attention to every place Cordelia deliberately passed and every exposed place she left available.
+The ghost smiled. "The disappointing original."
 
-"The rope has made you completely helpless," Cordelia said, lightly enough to leave room for humor. "It has not made you any less impressive."
+"The records call you Edran."
 
-Zephira tried to dismiss the observation. The gag reduced her denial to a needy little sound, and the Pearl immediately strengthened beneath her.
+"The records were edited by men who believed scholarship became less distracting when its author acquired a beard. It did not work."
 
-Cordelia glanced toward the humming silver. "That argument was not persuasive."
+"And Cordelia."
 
-Emily smiled. "Her artifacts are presenting a majority report."
+"Atma described you," Cordelia said.
 
-Humiliation moved through Zephira as cleanly as pleasure. Cordelia could feel the restrained strength beneath her hand and see exactly how warmly Zephira's body answered being called helpless. There was no explanation available, no joke sharp enough to reclaim the moment. To Zephira's considerable surprise, she liked that too.
+"What did she say?"
 
-Emily studied the upper lines without crossing farther into the chamber. "The hip return would improve if the line above her wrists were shortened by one and a half fingers. Two would increase the shoulder demand."
+"Tall. Blonde. Armed. Likely to argue about the bill."
 
-Cordelia kept her hand still upon Zephira's hip. "Would you like the adjustment?"
+Zephira considered. "Fair."
 
-Zephira looked at the Glass, at the posture from behind and above, then nodded.
+Emily looked toward the red rope pooled inside the basin. "She omitted gifted restraint designer."
 
-"Would you like me to make it?"
+Heat returned to Zephira's face with insulting efficiency. "You called my legs decorative."
 
-Another pause. Another nod.
+"Only while they were incapable of doing anything. They have since regained several practical uses."
 
-Cordelia touched the plate only after receiving it. She moved the upper control by one and a half fingers and withdrew both hands before the mechanism answered.
+Cordelia pressed her lips together.
 
-Rope moved across Zephira with sudden, elegant purpose. The adjusted line allowed her hips greater travel while the raised wrist line preserved its opposition. When the curved plate rolled her weight forward, her lower body moved farther than her shoulders could follow. Dark-red bands tightened beneath both breasts. The Resonant Pearl pressed closer and burst into a wickedly bright vibration. One heel lifted involuntarily until the calf stood sharply defined, then lowered when her toes could bear no more.
+"You may laugh," Zephira said.
 
-Zephira cried out into Courteous Silence.
+"I am trying to rebuild trust."
 
-The Glass gave her three views of the shudder she could neither hide nor explain.
+"By appearing constipated?"
 
-"One and a half," Emily said with satisfaction.
+Cordelia laughed.
 
-Cordelia's smile was gentler and therefore more dangerous. "Very pretty."
+The sound changed something. It did not erase the discovery or make Zephira less naked beneath the cloak. It returned the room to human proportions. Two women had stumbled into her private scene, become embarrassingly enthusiastic and then gotten her down, covered her and waited while she drank. They had seen too much. They had also done nothing with that knowledge except sit nearby and let her decide what followed.
 
-Zephira's face burned. She stopped pretending the response belonged to embarrassment alone.
+Emily touched the dormant plate with the back of one translucent finger. "You found it."
 
-Then Cordelia reached into the Horadric Cube and removed a small disk of blue glass set in plain brass.
+"Following the maker's mark on another restraint."
 
-"This is a calling charm," she said.
+"Then it is yours."
 
-Zephira's brows drew together.
+Zephira looked at her. "You made it."
 
-"It does not tell me where you are, what you are doing or whether you are tied," Cordelia explained, apparently familiar with the correct order of objections. "It remains completely inert: no location, condition, sound or image. If you sincerely try to communicate outward—to me, to anyone, even without words—it carries that call and your current location to me. Nothing happens unless you reach for somebody."
+"Centuries ago. If I claimed every object I misplaced, Cordelia would spend the rest of her life carrying my inventory."
 
-Zephira watched the blue glass.
+"I already do," Cordelia said.
 
-"There is nothing for me to check," Cordelia continued. "If you spend the next month doing things Drognan would pretend not to understand, I shall remain peacefully ignorant."
+"You carry an incomplete and poorly indexed selection."
 
-"He understands everything," Emily said. "He simply charges extra for nouns."
+"The Cube has begun hiding from you."
 
-The idea of keeping the charm was oddly compelling. Not because Zephira expected to need rescue. This frame would open at moonrise; its celestial setting had been engraved plainly enough that even Horadrim could understand it. But the blue disk offered a distinction she had not considered before: she might be utterly alone without making herself impossible to reach.
+Their argument wandered into storage theory. Zephira listened while working stiffness from one wrist. Emily did not ask to catalogue Zephira's body, reclaim the suite or correct the rope. Cordelia did not watch for the moment the cloak slipped upon one shoulder. The longer they spoke, the less the earlier remarks felt like mockery and the more they felt like an inconveniently accurate form of admiration.
 
-"Because solitary and unreachable are different words," Cordelia said.
+That distinction mattered.
 
-Cordelia attached no speech to the answer. She did not explain Zephira's hobby to her or imply that accepting the charm constituted progress toward a wiser form of restraint. She simply waited with the option upon her palm.
+Cordelia reached into the Horadric Cube and removed a small disk of blue glass set in plain brass.
 
-Cordelia held the disk where Zephira could see it. "Would you like to keep it?"
+"I have something you may want," she said. "It is a calling charm, not a watcher. It reports no location, sound or condition. If you ever sincerely try to call outward—to me or to anyone—it carries the call and your location to me. Otherwise it does nothing."
 
-Zephira nodded.
+She placed it upon the blanket between them rather than offering it into Zephira's hand.
 
-"Beside the water?"
+The blue glass remained dark.
 
-Another nod.
+"You would not know when I used the restraints," Zephira said.
 
-Cordelia placed the charm beside the nearest skin, well beyond Zephira's reach, then stepped back without inspecting any knot along the way.
+"Not unless you reached for someone."
 
-Their eyes met.
+"Or where I was."
 
-Being discovered had not transformed the session into someone else's scene. Cordelia had offered release and accepted no. She had treated ownership of the artifact as settled and privacy as something Zephira still possessed while naked, folded open and unable to cover any part of herself.
+"Not unless you called."
 
-The respect felt warmer than rescue would have.
+Emily lifted one finger. "It is not mine, has no relationship to Courteous Silence and cannot be activated by arousal, embarrassment or poor planning. I object to all three limitations aesthetically and approve of them technically."
 
-Cordelia returned to the threshold and lifted her staff. Emily remained visibly at her side.
+Zephira picked up the disk.
 
-"Would you like us to remain?" Cordelia asked.
+Solitary and unreachable were different words. She had not known the distinction mattered until Cordelia placed it within reach and left the choice entirely in her hands.
 
-There it was: a second invitation, offered after Zephira had discovered that praise could make her squirm, that being called helpless could feel embarrassingly good and that another woman's touch could intensify a scene without taking authorship away from her.
+The charm went beside the water skin.
 
-Part of her wanted Cordelia to stay. That knowledge no longer felt like a threat.
+Outside, sunlight shifted across the ruined courtyard. The moonrise term had ended with Emily's release, but several hours remained before dark. Zephira could dress, fold the suite into her pack and return to Lut Gholein in time for supper. Tomorrow the discovery would become something she had survived, then something she could refuse to discuss.
 
-The larger part still wanted the remaining hours to herself.
+She looked toward the basin.
 
-Zephira shook her head.
+Dark-red rope lay across painted fish. The Resonant Pearl rested quiet inside its loosened lower harness. The curved posture plate retained the exact settings she had chosen, including the responsive sequence which had barely begun before voices entered the courtyard.
 
-"Would you like us to return at moonrise?"
+Her body noticed all of this before pride formed an opinion.
 
-She considered, then shook her head again. She could manage the release and the walk home. What she wanted from them had already been given.
+Cordelia noticed her looking.
 
-"Then we shall leave you to it," Cordelia said. "The artifacts are yours."
+She waited until Zephira had finished the water and set it down.
 
-Emily nodded toward the Glass. "All four. I expect notes eventually."
+"Would you like us to put it back?" Cordelia asked. "The same restraint until moonrise. Emily and I can improve the arrangement, then leave you to the term."
 
-Zephira rolled her eyes around the gag.
+Zephira could answer with her own mouth, gather her rope with her own hands and leave upon her own legs. The cloak rested around her. Her weapons waited within reach. Neither woman moved closer while she considered.
 
-"You are welcome," Cordelia said, correctly interpreting everything else.
+She thought of Cordelia handling rope rather than the woman inside it. Emily closing the Glass before Zephira had to ask. The artifact had obeyed its maker, yet Emily had returned ownership of it without bargaining. The blue charm sat dark beside the water, proof that help could be available without becoming surveillance.
 
-The door returned to its earlier angle. Their footsteps crossed the outer courtyard and faded into the Lost City's dry evening hush.
+Trust had not existed when the door opened.
 
-Zephira waited until she could no longer hear them. The Appraising Glass continued its silent orbit, now showing a woman alone again but not quite the same woman who had entered the bath.
+There was enough of it now to make the answer exciting.
 
-One and a half had been correct.
+"Yes," Zephira said.
 
-For a little while, embarrassment at having been seen sharpened every sensation. Cordelia knew how she looked. Emily knew exactly what the artifact was doing. Both women were somewhere beyond the courtyard, deliberately not listening. That restraint on their part left Zephira free to abandon her own.
+Cordelia's expression warmed but did not sharpen into triumph.
 
-She stopped swallowing sounds. Courteous Silence softened them into helpless, private noises without concealing their meaning from Zephira herself.
+Zephira let the cloak fall from her shoulders.
 
-The harness shifted in measured increments. Rope rubbed where the changed geometry made her weight travel: ribs, breast, waist, inner thigh. The Resonant Pearl interpreted every small struggle as a request for greater attention. Her body could contribute only small movements, and each returned as pressure or vibration elsewhere. Zephira laughed once around the gag at the unfairness of a correction she had approved herself. The laugh became a broken moan when the plate raised her wrists and hips together.
+"Put me back exactly as you found me. Shorten the line above my wrists by one and a half fingers." She looked at Emily. "Show me what you would improve."
 
-Pleasure built without haste. It was not the sole purpose of the apparatus, merely the natural result of being warm, exposed, vibrated and rubbed for hours inside an arrangement she found irresistibly beautiful. When orgasm came, it arrived through the whole pattern. Her bound arms drew tight. Her hips rose while her hanging breasts swayed inside their compressing frame. One foot lifted onto tiptoe while the other strained flat, and the soft athletic body that had killed demons all week trembled helplessly inside its own chosen posture. The Glass showed every angle; the gag denied her the dignity of turning the resulting cry into language.
+Emily looked delighted. "One and a half is precisely correct. The original return was timid."
 
-The plate continued moving after the release.
+"You are not helping."
 
-Zephira breathed into the ropes and let them carry her.
+"I have not begun helping."
 
-By the time moonlight replaced the sunbeam, the discovery no longer felt like an intrusion. Cordelia and Emily had entered the afternoon and left it in Zephira's possession. The blue charm rested near the water, dark and silent.
+Zephira stepped naked into the dry basin.
 
-At moonrise, silver cuffs opened. Courteous Silence loosened at her nape, the Pearl went still and the Appraising Glass reunited its three reflections into one.
+The decision altered being seen. Before, Cordelia and Emily's attention had found her trapped inside a private composition. Now Zephira crossed the mosaic beneath both gazes, picked up the rope and began rebuilding it while knowing exactly what they would do with the result.
 
-The responsive plate lowered Zephira's wrists and released the line holding her hips. Her knees nearly failed when she finally stood upright. She caught one pillar, laughing under her breath while dark-red rope unwound from arms and torso and collected itself upon the floor.
+Her hands remained steady.
 
-Freedom returned in pieces. Hands first, stiff from hours behind her. Shoulders next. Then the ability to close her thighs, plant both feet and choose where her weight belonged. The ordinary power of her body felt newly pleasant after being absent so completely.
+Dark-red line passed beneath her breasts, around her ribs and over her shoulders. Zephira kept every turn flat. The rope had retained her warmth; drawing it across bare skin returned faint impressions from the earlier arrangement to the same places. She tightened the waist lattice, fitted the lower harness around her hips and secured the Resonant Pearl against herself. The small silver face settled close, cool and motionless.
 
-She drank, ate the remaining dates and dressed beneath the moon. The calling charm went into the inside pocket of her pack. The curved plate folded into a silver disk; the Appraising Glass, Resonant Pearl and Courteous Silence settled into matching compartments around it. Zephira wrapped the entire bath suite in her red sash and placed it beside her original restraint.
+Cordelia came to the basin when Zephira held out the remaining coil.
 
-Zephira climbed from the former bath and started toward Lut Gholein. Ahead, the city's lamps marked supper, wine, arguments and a tavern bill Atma would pretend had become urgent.
+She worked entirely through the restraint. Her fingers drew rope through a rear crossing, closed a bronze ring and passed the free end back into Zephira's waiting hand. When the pattern required a line beneath one breast, Cordelia lifted the line rather than the breast and let Zephira settle herself into it. The distinction was small, careful and impossible not to notice.
 
-Her secret had survived discovery.
+Emily awakened the plate.
 
-It simply belonged to three people now, and the other two had been trusted with exactly as much of it as Zephira chose.
+The Appraising Glass unfolded into three reflections. Courteous Silence lifted from the blanket and hovered beside Zephira's face.
+
+"The gag too," Zephira said.
+
+Cordelia held it out. Zephira opened her mouth and accepted the padded ball before Cordelia fastened its straps beneath her heavy braid.
+
+The ankle lines tightened first. Her bare feet moved toward opposite edges of the basin, each cuff docking to a separate floor ring. Her stance widened until closing her legs became impossible. The hip support guided her backward and high while the waist harness urged her torso toward the mosaic.
+
+She gave her hands to the waiting cuffs.
+
+Cordelia crossed them palm to palm behind her back, closed silver around each wrist and enclosed both forearms in measured turns of rope. Her touch remained upon cuff, knot and line. Then the doubled return traveled upward through the column ring.
+
+Emily shortened it by exactly one and a half fingers.
+
+The line lifted.
+
+Zephira folded forward. Her shoulders opened; her bound wrists rose behind her; her back became a long descending line from high hips to lowered head. Full breasts hung inside their dark-red frame, their soft weight visibly gathered by the lower crossings. Strong legs remained widely separated, calves taut above feet planted upon painted fish.
+
+The final anchor closed.
+
+Every practical advantage disappeared again.
+
+Zephira tested the posture. Her trained arms could not lower. Her thighs could not close. Trying to rise transferred force from the fixed wrist line through shoulders, ribs and the support beneath her hips. Trying to pull one foot inward ended at its own floor ring. The whole arrangement could not roll or topple because the responsive plate remained docked to the mosaic beneath her.
+
+The one-and-a-half-finger adjustment changed everything it was supposed to change.
+
+Her hips possessed slightly more travel beneath the fixed opposition of her shoulders. When she shifted, the lower return moved more distinctly along her inner thigh. The Pearl answered tension with a low pulse.
+
+Emily had not finished.
+
+Two narrow silver relays unfolded from the posture plate and fitted themselves around the dark-red lines beneath Zephira's breasts. They did not touch nipple or skin. Each simply joined the chest harness to the responsive circuit below. A third relay closed around the doubled line above her wrists.
+
+The new geometry remained traceable. Pulling at her wrists would divide its answer: half returned as upward pressure through the breast harness, half as a firmer pulse from the Pearl. Yielding would reverse the sequence, lowering the wrist line a fraction while bringing the Pearl closer. Any attempt to close her thighs would tilt the hip support forward without changing the fixed width of her stance.
+
+Resistance and surrender had both been written into the instructions.
+
+"That seems excessive," Cordelia said.
+
+"She asked what I would improve."
+
+"Excessive," Cordelia repeated, sounding much less critical.
+
+She placed two fingers against the loose end of the rope beyond Zephira's hip.
+
+Fire and cold entered the fibers.
+
+Neither became dangerous. A thin amber thread traveled one direction through the harness while a pale-blue thread traveled the other. They crossed at the knots, separated at the silver relays and continued through every line around breast, rib, waist, hip and thigh. The red rope itself became their path, holding the magic away from bare skin until movement pressed one enchanted section close.
+
+"Warmth follows increasing tension," Cordelia said. "Coolness follows release."
+
+Emily examined the circuit. "And the Pearl?"
+
+"Warm lines sharpen it. Cool lines broaden it."
+
+"That is annoyingly elegant."
+
+"Thank you."
+
+"It was not praise."
+
+Cordelia drew the final spell through the wrist return. Amber and blue flickered once at every crossing, then disappeared into the dark-red fibers.
+
+Emily sealed both additions behind one final condition. "Nothing begins until we have crossed the outer threshold."
+
+The enchantments remained dormant. Zephira could feel only the rope, the fixed posture and the small cool weight of the quiet Pearl.
+
+The Glass showed her what she had asked them to create: red rope settling into sun-bronzed softness, silver relays bright beneath her hanging breasts and powerful limbs converted into displayed lines. Somewhere inside the pattern, two colors of magic waited out of sight.
+
+"Lovely," Emily said.
+
+The word reached differently now.
+
+"And still magnificently helpless," Cordelia added.
+
+Zephira pulled at her wrists in answer. Nothing responded yet. Even the silence had become part of their design.
+
+Her muffled complaint followed both women toward the doorway.
+
+Cordelia picked up her staff. Emily floated beside her, studying the complete arrangement with the proprietary pleasure of a maker who had surrendered every claim except the right to admire good work.
+
+"Moonrise," Cordelia said.
+
+Emily glanced at the high opening. "The celestial term is restored. Emergency release remains available to the suite, and the calling charm remains beside the water."
+
+Zephira rolled her eyes around Courteous Silence.
+
+"She knows," Cordelia said.
+
+"I enjoy complete specifications."
+
+At the threshold, Cordelia looked back.
+
+Her gaze moved over Zephira slowly: bound wrists held high, dark-red rope framing full breasts, waist drawn into the responsive lattice and strong legs fixed so widely that every pulse from the Pearl became visible somewhere in thigh, calf or curling toes. The look carried warmth the elemental threads had not supplied.
+
+"Very pretty," Cordelia said.
+
+Then she closed the door.
+
+Their footsteps crossed the outer courtyard and faded into the Lost City's dry afternoon hush.
+
+Only after the sound disappeared did Zephira realize that Cordelia had not touched her anywhere the bindings had not required. The disappointment was small, immediate and far more humiliating than being called decorative. She had not asked for anything else, and whatever lay between them did not yet include it; some quiet, foolish part of her had hoped anyway.
+
+The responsive plate moved.
+
+Warmth gathered beneath her breasts as the wrist line shortened. The rope did not feel like Cordelia's hands. That absence made Zephira imagine the difference with embarrassing clarity.
+
+The Pearl brightened.
+
+Zephira's disappointment dissolved into sensation without quite disappearing.
+
+She pulled against the cuffs.
+
+Amber light traveled through the red rope. Warm fibers settled more firmly into the soft undersides of both breasts, crossed her ribs and tightened around the waist lattice. The wrist relay returned half the force upward, opening her shoulders farther, while the other half became a precise vibration between her thighs.
+
+She relaxed.
+
+Pale-blue light followed. The rope cooled where tension eased, leaving every compressed line newly distinct against warm skin. Her wrists lowered by a fraction without coming within reach of anything. The hip support rolled forward and held the Pearl more broadly against her, replacing the bright pulse with a deep hum which spread through the floor of her pelvis.
+
+Emily and Cordelia had made a language out of the two things her body could still choose.
+
+Zephira tested it deliberately.
+
+Resistance brought heat. The frame gathered her breasts more tightly, the Pearl sharpened and one heel lifted as the response passed through her. Surrender brought cool rope, deeper pressure and a slow tilt beneath her hips which made both knees strain uselessly inward.
+
+Holding still did not create a neutral answer. The plate interpreted stillness as acceptance and began its own measured sequence.
+
+The Appraising Glass revolved beyond reach.
+
+It showed Zephira from the front, rear and above. One reflection caught the warm amber lines pressed beneath her breasts. Another showed cool blue traveling over the red lattice at her waist and dividing toward both thighs. The elevated view made the full geometry mercilessly clear: wrists fixed high behind, feet anchored wide, hips held at the center of every returning force.
+
+She looked strong enough to break most things in the room.
+
+Just not anything presently holding her.
+
+Cordelia's remark returned with enough accuracy to make Zephira's face heat again.
+
+The Pearl noticed the tension.
+
+Pleasure built through alternating paths. Each pull at her wrists made rope warm and tighten around her breasts, drawing their soft weight more firmly into the dark-red frame. Each surrender cooled the same lines and rolled the plate beneath her, spreading stimulation wider until it felt less like a point and more like warmth filling the whole space between her hips.
+
+Her feet recorded every change. One heel rose, high arch drawing tight as her toes pressed against a painted fish. Then that leg softened and the other strained. The ankle lines permitted neither step nor useful shift, turning powerful calves into visible evidence for the Glass.
+
+Zephira stopped swallowing sounds.
+
+Courteous Silence softened them without concealing their meaning from her. The empty bath heard what Cordelia and Emily had politely left before hearing: moans broken by breath, a laugh when the reversed circuit caught her by surprise and one furious muffled remark after the plate demonstrated that closing her thighs only brought the Pearl closer.
+
+The orgasm approached without haste.
+
+Zephira felt it assemble through the entire composition. Heat under both breasts. Coolness drawing around ribs and waist. Wrists pulled high, hips held forward, legs denied every closing movement and the Pearl translating all of it into a gathering pressure she could neither reach nor escape.
+
+She resisted.
+
+Pleasure sharpened.
+
+She surrendered.
+
+Pleasure deepened.
+
+There was no incorrect answer and no empty place between them.
+
+Zephira climaxed.
+
+Her body tightened visibly inside the arrangement the other women had left behind. Full breasts lifted against warm rope. The waist lattice drew firm across her stomach. One foot rose onto tiptoe while the other flattened; long legs trembled without closing. Her bound fingers opened high behind her as the Pearl carried the release through pelvis, abdomen and chest in deep contractions.
+
+The circuit followed rather than overwhelmed her. Every involuntary strain produced a bright answering pulse. Every helpless settling drew a deeper wave through the curved support. Amber and blue crossed the red rope in alternating currents, making the orgasm feel written across the entire pattern.
+
+The Glass showed every angle.
+
+The gag caught her cry and returned it to the old bath as a soft, broken sound.
+
+When the last contraction eased, Zephira sagged into rope designed to carry precisely that surrender.
+
+The plate reduced itself to a gentle resting tension. Coolness traveled beneath her breasts and around her shoulders. The Pearl softened to a warm, patient hum. She remained where Cordelia and Emily had placed her, flushed, damp and completely unable to reach any part of the arrangement which had just satisfied her.
+
+That helpless continuity pleased her almost as much as the release.
+
+The term continued through afternoon.
+
+The two circuits never repeated themselves mechanically. Sometimes resistance sent heat down the waist lattice before the Pearl answered. Sometimes coolness arrived first, making both nipples tighten in the open air before warmth gathered beneath their weight. Emily's relays changed which side of the hip support lifted, so Zephira could not anticipate whether a pull from the left wrist would press the Pearl closer from the right or return tension through the rope beneath her left breast.
+
+She came again later, more slowly and with less surprise. The second orgasm left her legs shaking and her shoulders loose within the strappado's fixed demand. Afterward the suite gave her a long recovery interval while evening cooled the ruined bath around her.
+
+At moonrise, silver cuffs opened.
+
+Courteous Silence loosened at her nape. The Pearl went still. The wrist line lengthened; the hip support broadened and lowered her onto the blanket before releasing torso, thigh and ankle anchors in sequence.
+
+Zephira sat beneath the traveling cloak and drank from the water skin. The calling charm remained dark beside it.
+
+The curved plate folded into a silver disk. The Appraising Glass, Resonant Pearl and Courteous Silence settled into matching compartments around it. Red rope retained one final thread of amber and blue before both enchantments faded.
+
+Zephira wrapped the entire bath suite in her sash and placed it beside her original restraint.
+
+Her secret had not survived discovery unchanged. That no longer seemed like damage.
+
+It belonged to three people now. The other two had seen her helpless, given freedom back before asking anything of her and trusted the yes she offered afterward. Then they had improved her private scene and left it in her possession.
+
+The calling charm went into the inside pocket of her pack.
+
+Zephira dressed beneath the moon and started toward Lut Gholein. Ahead, the city's lamps marked supper, wine, arguments and a tavern bill Atma would pretend had become urgent.
+
+The walk gave her too much time to remember the careful way Cordelia had touched only rope, cuff and knot.
+
+For the first time, Zephira found herself wondering what it might feel like when that restraint no longer applied.
 
 ## Chapter Five: Four Hours, Four Weeks
 
