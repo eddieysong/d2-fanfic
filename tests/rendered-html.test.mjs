@@ -114,6 +114,14 @@ test("renders Zephira's complete arc after the Grail adventures", async () => {
   assert.ok(firstCruelty > lastZephira);
   assert.ok(archives > firstCruelty);
   assert.doesNotMatch(generated, /The Unreachable Key/);
+
+  const discoveryResponse = await render("/read/zephira-04-found-by-chance");
+  assert.equal(discoveryResponse.status, 200);
+  const discoveryHtml = await discoveryResponse.text();
+  assert.match(discoveryHtml, /Let(?:'|’|&#x27;)s get you out of that/);
+  assert.match(discoveryHtml, /Would you like to keep playing—with us/);
+  assert.match(discoveryHtml, /Resistance and surrender had both become active instructions/);
+  assert.match(discoveryHtml, /Zephira came again/);
 });
 
 test("renders the complete Black Rose arc before the later archives", async () => {
